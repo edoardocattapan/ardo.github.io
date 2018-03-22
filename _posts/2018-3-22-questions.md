@@ -9,7 +9,7 @@ title: The Questions
 
 - Why can't we see evidence of alien life?
 
-- Why are people lef- or right-handed?
+- Why are people left- or right-handed?
 
 - What is dejà-vu?
 
