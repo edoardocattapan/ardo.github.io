@@ -4,7 +4,7 @@ title: About
 permalink: /about/
 ---
 
-This website is a list of questions whose answers are yet unkown to human knowledge.
+This is a possible collection of all questions whose true answer is yet unkown to human knowledge.
 
 
 ### Add your question
