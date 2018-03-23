@@ -1,6 +1,6 @@
 ---
 layout: post
-title: The Questions
+title: Questions Noboby Knows The Answer To
 ---
 
 - How do we give AI aligned goals with humanity?
@@ -52,3 +52,34 @@ title: The Questions
 - What is information?
 
 - What is life?
+
+- Are numbers a human invention?
+
+- Are there any unobserved universal fundamental forces?
+
+- What is dark energy?
+
+- What is the universe made of?
+
+- How did life begin?
+
+- Why is there anything?
+
+- How are prime numbers distributed?
+
+- Can computers get faster and smaller exponentially?
+
+- Will we ever cure cancer?
+
+- What's there at the bottom of the oceans?
+
+- What happens inside and around a black hole?
+
+- Can we live forever?
+
+- Can we communicate telepathically?
+
+- Is teleportation possible?
+
+- Is time-travel possible?
+
