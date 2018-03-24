@@ -4,6 +4,14 @@ Among all possible questions, here we ask only those questions whose answer is y
 We are conscious about there being a true answer to these questions, and that is why we can ask the questions in the first place.
 
 
+- What is reality?
+
+- What is information?
+
+- Is information the basis of reality?
+
+- What is life?
+
 - How do we give AI aligned goals with humanity?
 
 - How many universes are there?
@@ -45,14 +53,6 @@ We are conscious about there being a true answer to these questions, and that is
 - What does the future of the universe hold?
 
 - What does the future hold?
-
-- Is information the basis of reality?
-
-- What is reality?
-
-- What is information?
-
-- What is life?
 
 - Are numbers a human invention?
 
