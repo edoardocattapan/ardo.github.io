@@ -1,11 +1,6 @@
 Hello and welcome to this page.
 
----
-layout: post
-title: Project 1: Questions
----
-
-###### List of questions nobody know the answer to yet 
+# List of questions nobody know the answer to yet 
 
 - How do we give AI aligned goals with humanity?
 
