@@ -1,7 +1,13 @@
-This is a list of questions whose answer is yet unkown. Therefore to find the true (provable) answer to these questions would mean to push human knowledge forward.
+Here is an attempt to formulate a list of questions which respect 3 criteria:
+- the true verifiable answer remains yet unknown to humankind
+- finding the true answer implies expanding human knowledge in a given area
+- the issue is important to humankind
+
+Questions are very important. They originate all progress of knowledge and serve to make sense of information.
+We can only ask questions whose presumable existence of its true answer we are at least conscious of, even if we do not know it.
+In an age where artificial intelligence is presumably getting more powerful to provide answers faster, cheaper and more accurately than we humans, our scope increasingly relies in asking better questions.
+
 The questions are not categorized and grouped into different disciplines and compartments of human knowledge, and therefore are not presented in any particular order.
-Among all possible questions, here we ask only those questions whose answer is yet unkown.
-We are conscious about there being a true answer to these questions, and that is why we can ask the questions in the first place.
 
 
 - What is reality?
