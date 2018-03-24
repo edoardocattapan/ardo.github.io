@@ -1,5 +1,6 @@
-This is a list of questions ready to be to answered by anyone who is willing to push human knowledge forward.
-The questions are not categorized and grouped into different disciplines and compartments of human knowledge, and therefore are not presented in a specific order.
+This is a list of questions whose answer is yet unkown. Therefore to find the true (provable) answer to these questions would mean to push human knowledge forward.
+The questions are not categorized and grouped into different disciplines and compartments of human knowledge, and therefore are not presented in any particular order.
+Among all possible questions, here we ask only those questions whose answer is yet unkown.
 We are conscious about there being a true answer to these questions, and that is why we can ask the questions in the first place.
 
 
