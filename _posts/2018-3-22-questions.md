@@ -1,3 +1,8 @@
+This is a list of questions ready to be to answered by anyone who is willing to push human knowledge forward.
+The questions are not categorized and grouped into different disciplines and compartments of human knowledge, and therefore are not presented in a specific order.
+We are conscious about there being a true answer to these questions, and that is why we can ask the questions in the first place.
+
+
 - How do we give AI aligned goals with humanity?
 
 - How many universes are there?
