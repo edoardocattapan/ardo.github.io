@@ -2,7 +2,7 @@ Questions are very important to us. They originate all progress of knowledge and
 We can only ask questions whose existence of the true answer we are conscious of, even if we do not know it yet.
 In an age where artificial intelligence is presumably getting more powerful to provide answers faster, cheaper and more accurately than us humans, our scope increasingly relies in asking better questions.
 
-Here is an attempt to formulate a list of questions which respect 3 criteria:
+Here is an attempt to formulate a list of questions which respect three criteria:
 - the true verifiable answer remains yet unknown to humankind
 - finding the true answer implies expanding human knowledge in a given area
 - the issue is important to humankind
