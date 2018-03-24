@@ -4,10 +4,10 @@ Here is an attempt to formulate a list of questions which respect 3 criteria:
 - the issue is important to humankind
 
 Questions are very important. They originate all progress of knowledge and serve to make sense of information.
-We can only ask questions whose presumable existence of its true answer we are at least conscious of, even if we do not know it.
+We can only ask questions whose existence of the true answer we are conscious of, even if we do not know it.
 In an age where artificial intelligence is presumably getting more powerful to provide answers faster, cheaper and more accurately than we humans, our scope increasingly relies in asking better questions.
 
-The questions are not categorized and grouped into different disciplines and compartments of human knowledge, and therefore are not presented in any particular order.
+The questions are not categorized or grouped into different disciplines or compartments of human knowledge, therefore are not presented in any particular order.
 
 
 - What is reality?
