@@ -11,4 +11,4 @@ My first project is "Questions", an attempt to formulate a list of questions who
 
 ### Add your question
 
-Send an email to [edoardo.cattapan@gmail.com](mailto:edoardo.cattapan@gmail.com)
+Send me an email and I will add your unanswered question to the list [edoardo.cattapan@gmail.com](mailto:edoardo.cattapan@gmail.com)
