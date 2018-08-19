@@ -1,6 +1,6 @@
 We are not getting out of this life alive and well.
 
-You will die. You are dying every moment passing in time.
+You will die. You are dying every moment passing in time. Every moment brings your death closer.
 
 The concept of "Memento mori" is truly empowering in putting things into perspective and in clarifying the nature, scope and meaning of your human dimension in this reality.
 
@@ -11,4 +11,7 @@ The chances of being born and alive in this moment are pretty minuscule in the b
 
 In playing your life, you have no real risks. So just play well, without restraints in expressing yourself.
 
-You are going to die. Every moment brings your death closer. Remember that.
+You are going to die.
+
+
+Remember that.
