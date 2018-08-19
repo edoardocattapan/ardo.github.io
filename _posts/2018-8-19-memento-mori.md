@@ -1,4 +1,4 @@
-Truth is, we are not getting out of this life alive and well.
+We are not getting out of this life alive and well.
 
 You will die. You are dying every moment passing in time.
 
