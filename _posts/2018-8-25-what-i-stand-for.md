@@ -29,6 +29,4 @@
  I believe we do not need myths, religions or other conceptual authorities of any kind.
  I believe we need examples of fellow human beings who lead by doing things and, as a byproduct, they show us what is possible.
  
- What this means:
- 
- So take 100% responsibility for everything in your life, don't complain about uncontrollable external factors, independently choose what to think and do.
+ The bottom line is: take 100% responsibility for everything in your life, don't complain about uncontrollable external factors, independently choose what to think, do things you are interested about and pursue your projects with a deterministic and practical approach. And this will inspire everybody else.
