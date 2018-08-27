@@ -32,6 +32,6 @@
  From a top-down perspective, myths, religions and political authorities work very well in uniting people under a common purpose and enable the control of the masses.
  But from a bottom-up perspective, these power structures have always represented an easy way for individuals to delegate responsibility for the bigger-picture thinking.
  I believe we do not need myths, religions or other conceptual authorities of any kind.
- I believe we need examples of fellow human beings who lead by doing things and, as a byproduct, they show us what is possible.
+ I believe we need examples of fellow human beings who lead by doing things, showing us what is possible.
  
- The bottom line is: take 100% responsibility for everything in your life, don't complain about uncontrollable external factors, independently choose what to think, do things you are interested about and pursue your projects with a deterministic and practical approach. And this will inspire everybody else.
+ The bottom line is: take 100% responsibility for everything in your life, don't complain about uncontrollable external factors, independently choose what to think, know yourself and always try to improve yourself, do the things you are interested about and pursue your projects with a deterministic and practical approach. This will make the World a better place and inspire everybody else.
