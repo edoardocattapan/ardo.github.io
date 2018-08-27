@@ -7,12 +7,13 @@
  
  But thinking by following the herd is very different from thinking independently by yourself.
  In fact, the courage required in choosing to be alone and closer to the truth - instead of being wrong but in good company - is extremely rare, even more rare than genius.
- As Mark Twain said "whenever you are part of the majority, it is time to pause and think".
+ As Mark Twain said "whenever you are part of the majority, it is time to pause and reflect".
   
  Human Agency
  
  I believe that people can choose what they think, what they believe, what they do and who they are.
  This means that external circumstances such as other people, nature and luck can be taken out of the equation.
+ 
  I don't believe in luck as a driving force for the realization of future events, but just as a tool for interpreting the unkown reasons that caused any given event in the past.
  Luck makes sense only looking backwards, as an interpretation tool to cover our own ignorance of the truth. Luck does not determine the future, not by any means.
  
