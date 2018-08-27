@@ -16,6 +16,11 @@
  I don't believe in luck as a driving force for the realization of future events, but just as a tool for interpreting the unkown reasons that caused any given event in the past.
  Luck makes sense only looking backwards, as an interpretation tool to cover our own ignorance of the truth. Luck does not determine the future, not by any means.
  
+ Self-Mastery
+ 
+ I believe the best way to live life is to be self-aware and improve one's self-knowledge and self-efficacy to achieve self-actualization.
+ The best way to help the world is to master yourself.
+ 
  Liberalism
  
  I believe in individual freedom from traditional authorities.
