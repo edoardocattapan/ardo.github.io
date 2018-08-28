@@ -4,11 +4,7 @@ title: About
 permalink: /about/
 ---
 
-This is a page where I share some projects I am working on.
+Welcome to my Github repository.
+Here you can read about some projects I am working on.
 
-My first project is "Questions", an attempt to formulate a list of questions whose answer is yet unkown.
-
-
-### Add your question
-
-Send me an email and I will add your unanswered question to the list [edoardo.cattapan@gmail.com](mailto:edoardo.cattapan@gmail.com)
+“A man may die, nations may rise and fall, but an idea lives on. Ideas have endurance without death.” ― John F. Kennedy
