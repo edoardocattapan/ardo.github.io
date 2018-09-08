@@ -3,7 +3,7 @@ Nowadays, you can have a personal AI assistant as your secretary, an Uber as you
 Most of these services are free, therefore accessible to almost everybody on the planet.
 
 What if we don't necessarily want easiness in all areas of life?
-There might be a real risk of life becoming too good and easy to live that we become radically lazy and complacent to technzyology, that the complexities and hardships we once longed to overcome are now being solved so fast by AI that the inner human need for solving hard problems is not met.
+There might be a real risk of life becoming too good and easy to live that we become radically lazy and complacent to technology, that complexities and difficult problems are now being solved so fast and effectively by AI that the inner human need for solving hard problems is not met.
 In Ted Kaczynski's words, in order to be happy every individual "needs to have goals whose attainement requires effort, and needs to succeed in attaining at least some ofhis goals". We deeply need hard challenges, so that we can measure ourselves against them by deploying serious effort in attaining an improbable but desirable outcome.
 If we entirely delegate solvng hard problems to technology, we are left either with simple and menial problems or impossible challenges, neither of which would make us happy or fulfilled.
 
