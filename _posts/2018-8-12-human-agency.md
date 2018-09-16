@@ -11,6 +11,6 @@ So choose.
 
 Choose what you think, what you believe, what you do.
 Choose the interpretation of the past and choose how to tell the story of the future.
-Change the story at any time. Regardless of blocking pressures you may feel in certain moments (any pressure from peers or authorities), you choose.
+Change the story at any time. Regardless of blocking pressures you may feel in certain moments (any pressure from peers or authorities), you get to choose.
 
-Choose well. Then Act.
+Choose well, and act accordingly.
