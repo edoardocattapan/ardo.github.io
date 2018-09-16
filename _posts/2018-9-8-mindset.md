@@ -2,10 +2,9 @@
 
 For as much agency in as many decisions you might try to imprint to give shape to your own life, it certainly might seem as though most of life's critical decisions are not made by you, but by external circumstances which you cannot totally or directly control.
 On top of this, as the song lyric goes, you might only be aware of just a few of those life-changing decisions.
-How ironic?
 
 Nonetheless, the only actor and constant spectator of this whole show that is your life is you.
-And you have agency over a lot of important things.
+And you have agency over a lot of important things, including how you interpret and react over the life-changing decisions not taken by you.
 
 The mindset with which you prime your mind for any decsion or activity is radically important in determining the outcomes in your life.
 One's mindset directly determines a lot of life outcomes where direct agency is involved.
