@@ -4,7 +4,7 @@ For as much agency in as many decisions you might try to imprint to give shape t
 On top of this, as the song lyric goes, you might only be aware of just a few of those life-changing decisions.
 
 Nonetheless, the only actor and constant spectator of this whole show that is your life is you.
-And you have agency over a lot of important things, including how you interpret and react over the life-changing decisions not taken by you.
+And you have agency over a lot of important things, including how you interpret and react over the (apparently) life-changing decisions you didn't take.
 
 The mindset with which you prime your mind for any decsion or activity is radically important in determining the outcomes in your life.
 One's mindset directly determines a lot of life outcomes where direct agency is involved.
