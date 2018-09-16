@@ -1,3 +1,5 @@
+ Here is a list of personal values that I find are important to me, with a brief explanation of why.
+ 
  Independent Thinking
   
  I believe in the value of thinking for yourself.
