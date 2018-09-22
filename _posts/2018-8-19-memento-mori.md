@@ -1,5 +1,4 @@
 We are not getting out of this life alive and well.
-
 Rember: you will die.
 Your body - as a biological aggregation of cells - is getting older and dying every moment passing in time.
 Every moment brings your death closer.
