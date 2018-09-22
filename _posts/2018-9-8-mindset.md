@@ -1,5 +1,4 @@
-"Ten decisions shape your life. You'll be aware of five about" - I'll Try Anything Once, by The Strokes
-
+"Ten decisions shape your life. You'll be aware of five about" - I'll Try Anything Once, The Strokes.
 For as much agency in as many decisions you might try to imprint to give shape to your own life, it certainly might seem as though most of life's critical decisions are not made by you, but by external circumstances which you cannot totally or directly control.
 On top of this, as the song lyric goes, you might only be aware of just a few of those life-changing decisions.
 
