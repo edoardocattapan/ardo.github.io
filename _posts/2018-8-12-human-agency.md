@@ -1,5 +1,4 @@
 The past is a story we tell ourselves built upon the memories we have and any documental witnesses accumulated, which we get to interpret subjectively.
-
 The future is another story we imagine and choose to project toward a new place, a state-of-the-world where things are different from what we remember or acknowledge existing in the present situation.
 
 From here, with this sense of framing our condition of living life, destiny is a void concept.
