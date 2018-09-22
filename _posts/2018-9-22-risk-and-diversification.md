@@ -1,6 +1,5 @@
 Risk is not a real thing.
 Risk is a concept meaningful only in probabilistic terms.
-
 Investment diversification is a protection against a fictional danger: the risk of a net loss of money from a set of investments.
 This reasoning only holds true when talking about possible future outcomes in probabilistic terms.
 In terms of real results, the outcome is always going to be one, meaning that risk-minimization through diversification of investments is a losing strategy, as it pulls away resources from the best performing investments and puts them into the worst performing ones.
