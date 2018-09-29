@@ -9,7 +9,7 @@ As the song Undertow by Stars goes: "You pick the storm or you pick the shore: b
 
 However, I think the concept of "Memento mori" is truly empowering in putting things into perspective and in clarifying the nature, scope and meaning of our human dimension in this reality.
 
-You realize you have nothing to prove to anybody, as the only people that might observe, judge or evere care about you and your actions are also all dying about the same time as you are.
+You realize you have nothing to prove to anybody, as the only people that might observe, judge or ever care about you and your actions are also all dying about the same time as you are.
 
 Nobody cares about you. But you should care, because you are everything you will ever be in this only existence.
 
