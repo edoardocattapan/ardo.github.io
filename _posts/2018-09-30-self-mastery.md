@@ -4,7 +4,7 @@ The best perspective, as in most productive and most enjoyable at the same time,
 Self-love expands the self beyond one's physical boundaries, to embrace one's best and worst characteristics and happenings, the surroundings, the momentary circumstances, the other living things (people, animals, plants and nature) with no spatial limits.
 
 Stoic philosophy is about understanding that the self is very fallacious, and being truly prepared for coping with the worst imaginable scenarios so to face the day with a confidence that is now intrinsic to the self and not dependent to external circumstances.
-This understanding brings to deep self-acceptance: compassion for the human finite situation, forgiveness for one's own fallacies, appreciation of one's own good qualities and gratitude for the chance to be even alive and aware in the first place.
+This understanding brings to deep self-acceptance: compassion for the human finite situation, forgiveness for one's own fallacies, appreciation of one's own good qualities and gratitude for the chance of even being alive and aware in the first place.
 This higher level of consciousness is the doorway to self-love.
 
 When you love yourself, you get that you are not your body, and you are not your thoughts.
