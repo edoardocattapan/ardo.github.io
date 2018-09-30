@@ -3,10 +3,14 @@ The stage where we are playing now is a rich, live environment of energy and inf
 As part of this universal cooling process, we have the chance to play our small part in the exchange of information and energy; but if we are to be honest, we should keep in mind that - eventually - everything we do or witness is all tending to nothing.
 
 We just build "castles in the air": many small ordered structures of information/energy/people/money (like companies, nations with rules, organizations with stakeholders) and it's everything inscribed in this temporary reality which is the living universe we live in.
-All our activities - including our very existence - are an attempt to deny our death and to deny universal enthropy.
+All our activities - including our very existence - are an attempt to deny our own death as individuals and to impossibly fight against universal enthropy.
+We don't just sit down and wait for the cold, dark end which is awaiting us.
+We instead create works of art which would endure through time and against our own death.
+In the words of poet Dylan Thomas, we "do not go gentle into that good night [but] rage, rage against the dying of the light".
 
-Eventually, everything we build is going to fall apart. This might seem depressing, but it's instead an attempt at acknowledging our finite and meaningless nature.
-Once understood, this reality can empower us to just play our role with more consciousness, to do our thing as best as we can do it.
+In all honesty though, we know that eventually everything we build is going to fall apart.
+This might seem depressing, but it's instead an attempt at acknowledging our finite and meaningless nature.
+Once acknowledged and understood, this condition can empower us to play our role with that much more consciousness as to do our thing as best as we can do it. For ourselves.
 
 We're here to play music, play arts, dance and stay together under the sky.
 People dancing in the moonlight definitely express a truer life purpose than people sitting and arguing over politics.
