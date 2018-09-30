@@ -12,12 +12,14 @@ In all honesty though, we know that eventually everything we build is going to f
 This might seem depressing, but it's instead an attempt at acknowledging our finite and meaningless nature.
 Once acknowledged and understood, this condition can empower us to play our role with that much more consciousness as to do our thing as best as we can do it. For ourselves.
 
-We're here to play music, play arts, dance and stay together under the sky.
-People dancing in the moonlight definitely express a truer life purpose than people sitting and arguing over politics.
+We're here to play music, to create art, to dance, to express ourselves and stay close together under the infinite sky.
 
-Along these lines, playing video games actually is not a waste of time, but maybe the only truly meaningful thing we can do here, for our minds to just get even more engaged than in reality.
+In this sense, a group of people dancing on the beach under the moonlight would definitely express a truer life purpose than that implied by people sitting in an arena to argue over politics and the causes of past events.
 
-In fact, if life is about maximising good feelings for the mind (love, happiness, joy, gratitude, forgiveness, mindfulness etc.), this means that we are maximising how the processing of information in our brains "feels": this is our consciousness. Machines process information but cannot feel the processing of information.
-In aggregate then, we are maximising our collective consciousness, and that's our life scope- to increase the scope and scale of human consciousness.
+If human life is ultimately about maximising the good feelings for the mind (such as love, happiness, entertainement, fun, joy, gratitude, forgiveness, mindfulness etc.), we are here to be aware of how good the processing of information "feels" in our brains.
+This "good feeling of information" is our consciousness: machines process information but cannot feel the processing of information.
+In fact, machines are helping us by enriching our reality with more engaging information: playing video games actually is not a waste of time, but maybe the only truly meaningful thing we can do here, for our minds will get even more engaged than in the reality we are used to.
 
-This is also why it's a great idea not to take yourself or anything too seriously and why it's important to have a good sense of humor.
+In aggregate then, we are here to acknowledge and expand our collective consciousness, and that seems to be the purpose of humanity: to increase the scope and scale of human consciousness.
+
+By the way, this is also why it's a great idea not to take yourself or anything too seriously and why it's important to have a good sense of humor.
