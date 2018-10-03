@@ -16,7 +16,7 @@ Human Agency
 I believe that people can choose what they think, what they believe, what they do and who they are.
 This means that external circumstances such as other people, nature and luck can be taken out of the equation.
 
-I don’t believe in luck as a driving force for the realization of future events, but just as a tool for interpreting the unkown reasons that caused any given event in the past.
+I don’t believe in luck as a driving force for the realization of future events, but just as a tool for interpreting the unknown reasons that caused any given event in the past.
 Luck makes sense only looking backwards, as an interpretation tool to cover our own ignorance of the truth.
 Luck does not determine the future, not by any means.
 
