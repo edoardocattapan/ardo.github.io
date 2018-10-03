@@ -9,7 +9,7 @@ This higher level of consciousness is the doorway to self-love.
 
 When you love yourself, you get that you are not your body, and you are not your thoughts.
 Your body is just a part of what you now feel you truly are: a physical incarnation which makes you present and relevant in the physical dimension of reality.
-But your body is leaving you, it's changing, getting old, and one day it will stop working altogheter.
+But your body is leaving you, it's changing, getting old, and one day it will stop working altogether.
 And you are not your thoughts, as these come from chemical connections in your neural system (the brain) which are tied to facts which are no longer as relevant compared to the reality you get to experience in the present moment with your perceptions.
 
 When you love yourself, you are the bigger person, you have a big-picture perspective on everything, and so you can realize that you truly do not need anything that you don't already are.
