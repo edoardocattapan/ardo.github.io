@@ -1,9 +1,9 @@
 We are not getting out of this life alive and well.
-Rember: you will die.
+Remember: you will die.
 Your body - as a biological aggregation of cells - is getting older and dying every moment passing in time.
 Every moment brings your death closer.
 
-The notion that death is inevitable and ever closer is scary, because it imposes on us something unkown and irreversible, and is sad, because whatever you do in life does not matter.
+The notion that death is inevitable and ever closer is scary, because it imposes on us something unknown and irreversible, and is sad, because whatever you do in life does not matter.
 You can work hard towards huge plans for a great future, or you could do nothing for the future and spend the present moment appreciating (or depressingly downgrading) all you witness in your life.
 As the song Undertow by Stars goes: "You pick the storm or you pick the shore: both take you to the floor".
 
