@@ -1,5 +1,5 @@
 For all we know, our life is the only shot we have at playing in a rich environment, with no intrinsic meaning, and an extrinsic significance which can be attached to it at will.
-The stage where we are playing now is a rich, live environment of energy and information, doing its thing and getting (c)older towards a state of enthropic death, or cold nothingness.
+The stage where we are playing now is a rich, live environment of energy and information, doing its thing and getting (c)older towards a state of entropic death, or cold nothingness.
 As part of this universal cooling process, we have the chance to play our small part in the exchange of information and energy; but if we are to be honest, we should keep in mind that - eventually - everything we do or witness is all tending to nothing.
 
 We just build "castles in the air": many small ordered structures of information/energy/people/money (like companies, nations with rules, organizations with stakeholders) and it's everything inscribed in this temporary reality which is the living universe we live in.
