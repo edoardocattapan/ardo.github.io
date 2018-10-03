@@ -26,7 +26,7 @@ The questions are not categorized or grouped into different disciplines or compa
 
 - Why are people left- or right-handed?
 
-- What is dejà-vu?
+- What is déjà vu?
 
 - Why do we yawn?
 
