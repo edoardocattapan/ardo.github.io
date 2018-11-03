@@ -11,8 +11,8 @@ And I would argue that, because of the very nature of retrospective concepts, wi
 Neuroscience found there is a time-lag between the firing of neurons originating a thought and us being conscious about having that thought, and there could lie the window of possibility for a subjective  and independent authorship of reality to take place.
 This phenomenon is known as the "postdictive illusion of choice"
 The problem here is the “independent” adjective attributed to that subjective ability to choose.
-There is a time-lag occuring during which external information reaches our perceptions and then our conscious awareness.
-Because of this time-lag between our consciousness and external reality, our brain makes up for the delay by infering an anticipation of information that has yet to reach awareness but has already been perceived subconsciously.
+There is a time-lag occurring during which external information reaches our perceptions and then our conscious awareness.
+Because of this time-lag between our consciousness and external reality, our brain makes up for the delay by inferring an anticipation of information that has yet to reach awareness but has already been perceived subconsciously.
 
 In fact, no choice can be taken independently or without the influence of neurological chemistry, genetic factors, factors originated during fetal development of the individual, cultural and environmental factors, biological factors of the human species and the conditions of the Universe we live in.
 Neither pure determinism, nor pure randomness, nor any combination of the two, allows for "free will" to make sense.
@@ -26,7 +26,7 @@ Nonetheless, annihilating free will does not decrease the legitimacy of personal
 Annihilating free will does not annihilate a sense of self-authorship, self-determination and personal agency.
 It's true that I am not an independent, free agent, but this does not mean that I don't have agency over my life.
 Human agency is very prominent in living life.
-In fact, it is precisely your self-created sense of agency over deciding who you are, what you belive in and what you do that originates the direction of your life.
+In fact, it is precisely your self-created sense of agency over deciding who you are, what you believe in and what you do that originates the direction of your life.
 
 In a world where people - rightfully - don't believe in free will, there is no basis for condemning criminals (as they are not directly imputable for any bad actions), nor for awarding prices or celebrating individual talents or collective achievements.
 It would be a very different world than the one we live in right now, both culturally and actually. It would be a world where people just be themselves and live their lives, being more understanding of the reasons behind bad actions from bad people, and thus a more compassionate world.
