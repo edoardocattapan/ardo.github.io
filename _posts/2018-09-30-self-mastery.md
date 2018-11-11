@@ -5,7 +5,14 @@ Self-love expands the self beyond one's physical boundaries, to embrace one's be
 
 Stoic philosophy is about understanding that the self is very fallacious, and being truly prepared for coping with the worst imaginable scenarios so to face the day with a confidence that is now intrinsic to the self and not dependent to external circumstances.
 This understanding brings to deep self-acceptance: compassion for the human finite situation, forgiveness for one's own fallacies, appreciation of one's own good qualities and gratitude for the chance of even being alive and aware in the first place.
-This higher level of consciousness is the doorway to self-love.
+
+I found that the "self" is not confined into the physical limits of the brain, or the nervous system, or even the feedback-loop that is in place when you interact with an IT device (smartphone, PC, etc.), known as the "extended mind".
+The "self" is really not confined at all, if not just by your awareness level of its lack of confines.
+One practical way to embrace this idea and live in coherence with it, is to think of reality as a video game.
+In fact, both reality and video games are open and changing environments rich with information bits responding to underlying logics and patterns. Or so it would seem to us, at least.
+In practice, you can think of your body in the physical world as you would consider your avatar character in the video game.
+While your body interacts within the environment it is surrounded by, your "self" is really placed outside of the screen altogether, in another universe, projeting its presence on the video game like a "God intelligence", aware of everything (including the distinction of the two worlds) in the a-temporal present moment.
+This realization is the "awakening": being aware of this idea gives sudden glimpses of a higher level of consciousness, that is the ultimate doorway to self-awareness and self-love.
 
 When you love yourself, you get that you are not your body, and you are not your thoughts.
 Your body is just a part of what you now feel you truly are: a physical incarnation which makes you present and relevant in the physical dimension of reality.
