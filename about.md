@@ -6,7 +6,7 @@ permalink: /about/
 
 Hi there, thank you for reading this blog.
 
-My intent here is to share a few independent reasonings which I build upon ideas that are already out there.
+My intent here is to share a few independent reasonings which I built upon ideas that are already out there.
 
 I hope they are useful to you: make of them what you wish.
 
