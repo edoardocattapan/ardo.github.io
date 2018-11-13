@@ -2,7 +2,7 @@ The past is a story we tell ourselves built upon the memories we have and any do
 The future is another story we imagine and choose to project toward a new place, a state-of-the-world where things are different from what we remember or acknowledge existing in the present situation.
 
 From here, with this sense of framing our condition of living life, destiny is a void concept.
-Humans can choose what reality to live in life by choosing what to believe, to think, to do.
+We can choose what reality to live in by choosing what to believe in, what to think and what to do.
 Human agency originates reality, changes reality, legitimizes everything. It is the necessary condition for life.
 At least for us, humans.
 
