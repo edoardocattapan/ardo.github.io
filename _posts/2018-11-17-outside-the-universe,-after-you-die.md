@@ -22,4 +22,6 @@ But the present moment is not to be conceived as an infinitesimally small point 
 
 On top of this revelation, some theories have built persuasive stories of metaphorical and iconoclastic myths, such as Christianity, around the promise of eternity.
 The late Friedrich Nietzsche has brilliantly revealed the psychopathology behind Christianity, as he charged it with nihilism because of its lust for sacrifice and revenge which radically depreciates the only life we certainly do have in this world for the sake of an unknown "afterlife".
-Although Nietzsche ended up proposing yet another alienating atheistic theology based on the eternal recurrence of life - an idea based on the cyclical nature of time first brought forward by the Pythagoreans in ancient Greece - we could very reasonably stop here and conclude that life and consciousness are the origins of everything.
+Although Nietzsche ended up proposing yet another alienating atheistic theology based on the eternal recurrence of life - an idea based on the cyclical nature of time first brought forward by the Pythagoreans in ancient Greece - we could very reasonably stop here and conclude that life and consciousness are indeed the origin of everything.
+
+Your life really is everything.
