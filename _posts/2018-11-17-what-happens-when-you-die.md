@@ -1,4 +1,4 @@
-When I was in high school, a physics professor from university came to our school to give a fascinating lecture about "The Infinitely Big And Ahe Infinitely Small".
+When I was in high school, a physics professor from university came to our school to give a fascinating lecture about "The Infinitely Big And The Infinitely Small".
 After the professor gave the lecture, one of the smartest students in the school, who was also the school's students' representative, asked the lecturer: "if the universe is expanding (at accelerated speed) like an air baloon, then where is it expanding into? what's outside the expanding universe? just infinite space?"
 And I remember being shocked at the stupidity of his question, as he had serious trouble accepting the idea that "space" only makes sense as space-time within the universe, and not without it.
 In fact, his question was based on the false assumption that space is independent of the space-time fabric of the universe.
