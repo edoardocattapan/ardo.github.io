@@ -4,6 +4,7 @@ And I remember being shocked at the stupidity of his question, as he had serious
 In fact, his question was based on the false assumption that space is independent of the space-time fabric of the universe.
 
 On a similar fashion, instead of asking "what's outside of the universe?", we might ask "what happens after death?"
+
 Based on the theory of biocentrism, which encapsulates the latest scientific findings in physics and biology, we realize that this question too is based on a false assumption: that time is independent of life and consciousness.
 
 Like the universe does not expand into space, as space-time is inherent within the universe and not outside of it, so life does not develop within time, as time is inherent in the consciousness of a living organism.
