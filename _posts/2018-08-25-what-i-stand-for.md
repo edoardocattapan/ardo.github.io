@@ -2,34 +2,42 @@ Here is a list of personal values that I find are important to me, with a brief 
 
 Independent Thinking
 
-I believe in the value of thinking for yourself.
+I believe in the value of thinking for yourself, deploying rationality in a rigorous scientific way.
 As Immanuel Kant said, “Have the courage to use your own intelligence”.
 Thinking is no doubt important: Blaise Pascal believed that thinking is the only way for us humans to “nobilitate” ourselves.
 It is what distinguishes humans from other animals in the first place.
 
 But thinking by following the herd is very different from thinking independently by yourself.
 In fact, the courage required in choosing to be alone and closer to the truth - instead of being wrong but in good company - is extremely rare, even more rare than genius.
-As Mark Twain said “whenever you are part of the majority, it is time to pause and reflect”.
+Mark Twain said: “whenever you are part of the majority, it is time to pause and reflect”.
 
 Human Agency
 
 I believe that people can choose what they think, what they believe, what they do and who they are.
-This means that external circumstances such as other people, nature and luck can be taken out of the equation.
+This means that external circumstances such as other people, nature and luck can be taken out of the equation for living life.
 
 I don’t believe in luck as a driving force for the realization of future events, but just as a tool for interpreting the unknown reasons that caused any given event in the past.
 Luck makes sense only looking backwards, as an interpretation tool to cover our own ignorance of the truth.
-Luck does not determine the future, not by any means.
+Luck does not determine the future: not by any means.
+
+
+Individualism
+
+Everything that you ever acknowledge happening (and that which you might fail to see) happens inside yourself, as yourself.
+
+I feel that the individual dimension is the first place from where to start creating a better society, and not the other way around.
+I believe the individual is (as should be) free from traditional authorities.
+I believe that individual freedom is more important than common peace and order.
+
 
 Self-Mastery
 
-I believe the best way to live life is to be self-aware and improve one’s self-knowledge and self-efficacy to achieve self-actualization.
-The best way to help the world is to master yourself.
+I believe the best way to live life is to be self-aware and improve one’s self-knowledge and self-efficacy to achieve self-actualization. I believe that, generally, the best way to serve the world is to master yourself first.
 
-Liberalism
+I agree that we should strive for greater collective enlightenment and I think that starts with individual enlightenment.
+But once we are enlightened, there is indeed much we should strive to do to continue being our true enlightened selves.
+We should strive to be the best version of ourselves, keep the great values of humanity alive and expand our questions.
 
-I believe in individual freedom from traditional authorities.
-I believe that individual freedom is more important than common peace and order.
-I feel that the individual dimension is the first place from where to start creating a better society, and not the other way around.
 
 Leading by example
 
