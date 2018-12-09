@@ -4,10 +4,8 @@ title: About
 permalink: /about/
 ---
 
-Hi there, thank you for reading this blog.
+The intention with this blog is to share a few independent reasonings I have built upon ideas that are already out there.
 
-My intent here is to share a few independent reasonings which I built upon ideas that are already out there.
-
-I hope they are useful to you: make of them what you wish.
+Thank you for reading.
 
 “A man may die, nations may rise and fall, but an idea lives on. Ideas have endurance without death.” ― John F. Kennedy
