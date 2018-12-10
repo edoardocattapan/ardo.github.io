@@ -32,7 +32,10 @@ I believe that individual freedom is more important than common peace and order.
 
 Self-Mastery
 
-I believe the best way to live life is to be self-aware and improve one’s self-knowledge and self-efficacy to achieve self-actualization. I believe that, generally, the best way to serve the world is to master yourself first.
+I believe the best way to live life is to be self-aware and improve one’s self-knowledge and self-efficacy to achieve self-actualization.
+I believe that, generally, the best way to serve the world is to master yourself first.
+One key idea I found works wonders for me is to mentally locate my self in a relaxed-accepting-grateful state of mind that is dis-associated in principle from my thoughts and external circumstances.
+Even though I find it difficult to maintain this state for more than a few days in a row, I know that third-person view of my reality is my best place to live my life: where I feel my best and I perform my best.
 
 I agree that we should strive for greater collective enlightenment and I think that starts with individual enlightenment.
 But once we are enlightened, there is indeed much we should strive to do to continue being our true enlightened selves.
