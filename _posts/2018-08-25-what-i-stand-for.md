@@ -37,6 +37,8 @@ I believe that, generally, the best way to serve the world is to master yourself
 One key idea I found works wonders for me is to mentally locate my self in a relaxed-accepting-grateful state of mind that is dis-associated in principle from my thoughts and external circumstances.
 Even though I find it difficult to maintain this state for more than a few days in a row, I know that third-person view of my reality is my best place to live my life: where I feel my best and I perform my best.
 
+In general, staying mentally "on top" of things (being the bigger person, maintaining perspective, being aware) is very good.
+
 I agree that we should strive for greater collective enlightenment and I think that starts with individual enlightenment.
 But once we are enlightened, there is indeed much we should strive to do to continue being our true enlightened selves.
 We should strive to be the best version of ourselves, keep the great values of humanity alive and expand our questions.
