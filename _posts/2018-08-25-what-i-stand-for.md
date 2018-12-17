@@ -34,6 +34,8 @@ Self-Mastery
 
 I believe the best way to live life is to be self-aware and improve one’s self-knowledge and self-efficacy to achieve self-actualization.
 I believe that, generally, the best way to serve the world is to master yourself first.
+Accepting that life is hard, you take responsibility for being a good version of what you can be, choosing to be wise and to make the decision to sacrifice something for the sake of doing what's more important.
+Taking responsibility, taking care of yourself and being honest with yourself is the foundation for being able to live in the best way.
 In this ongoing process of self-mastery, one key idea I found works wonders for me is to mentally locate my self in a relaxed-accepting-grateful state of mind that is dis-associated in principle from my thoughts and external circumstances.
 Even though I find it difficult to maintain this state for more than a few days in a row, I know that third-person view of my reality is my best place to live my life: where I feel my best and I perform my best.
 
