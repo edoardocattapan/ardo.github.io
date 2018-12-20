@@ -30,8 +30,10 @@ The late Friedrich Nietzsche has brilliantly revealed the psychopathology behind
 Although Nietzsche ended up proposing yet another alienating atheistic theology based on the eternal recurrence of life - an idea based on the cyclical nature of time first brought forward by the Pythagoreans in ancient Greece - we could very reasonably stop here and conclude that life and consciousness are indeed the origin of everything.
 
 We don't need to find new ways to transcend life - although I welcome that - because we already do.
+
 See: life actually ends with death, and there is nothing on the other side.
-Everything (every thing) is necessarily on this side.
+Everything (everything) is necessarily on this side.
+
 I live, forever.
 
 Your life really is everything.
