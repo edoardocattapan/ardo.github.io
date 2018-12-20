@@ -31,7 +31,7 @@ Although Nietzsche ended up proposing yet another alienating atheistic theology 
 
 We don't need to find new ways to transcend life - although I welcome that - because we already do.
 See: life actually ends with death, and there is nothing on the other side.
-Everything (every thing) is on this side.
+Everything (every thing) is necessarily on this side.
 I live, forever.
 
 Your life really is everything.
