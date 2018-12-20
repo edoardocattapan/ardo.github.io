@@ -34,6 +34,6 @@ We don't need to find new ways to transcend life - although I welcome that - bec
 See: life actually ends with death, and there is nothing on the other side.
 Everything (everything) is necessarily on this side.
 
-I live, forever.
+I live. Forever shall I live.
 
 Your life really is everything.
