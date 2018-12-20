@@ -23,10 +23,15 @@ That means nothing. People like us, who believe in physics, know that the distin
 If there is no distinction between past, present and future, then the flow of time does not make sense and everything happens in the eternal present moment.
 But the present moment is not to be conceived as an infinitesimally small point of time (a moment) which is ever-present as "time goes on":  rather as the a-temporal "eternal moment", during which everything that ever was, is or will be, is.
 If this reasonates and is true, then we realize that what we call "the future" is already existing in the present moment all along and we are just not having access to it.
-As writer William Gbson once put it on The Economist: “The future is already here – it's just not evenly distributed."
+As writer William Gibson once put it on The Economist: “The future is already here – it's just not evenly distributed."
 
 On top of this revelation, some theories have built persuasive stories of metaphorical and iconoclastic myths, such as Christianity, around the promise of eternity.
 The late Friedrich Nietzsche has brilliantly revealed the psychopathology behind Christianity, as he charged it with nihilism because of its lust for sacrifice and revenge which radically depreciates the only life we certainly do have in this world for the sake of an unknown "afterlife".
 Although Nietzsche ended up proposing yet another alienating atheistic theology based on the eternal recurrence of life - an idea based on the cyclical nature of time first brought forward by the Pythagoreans in ancient Greece - we could very reasonably stop here and conclude that life and consciousness are indeed the origin of everything.
+
+We don't need to find new ways to transcend life - although I welcome that - because we already do.
+See: life actually ends with death, and there is nothing on the other side.
+Everything (every thing) is on this side.
+I live, forever.
 
 Your life really is everything.
