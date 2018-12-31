@@ -22,4 +22,4 @@ Love is the space of reality.
 And with your mind power you can start being that love: this is the place where you create and change your reality with your imagination.
 Love, as reality, starts by climbing up the ladder of self-awareness.
 
-In a metaphoric sense, you are not a drop of water in the ocean of reality: you are really the whole ocean, manifesting in deep still calmness or rough furious patterns of waves and currents, doing its dance of life.
+In a metaphoric sense, you are not a drop of water in the ocean of reality: you are really the whole ocean, manifesting in deep still calmness or rough furious patterns of waves and currents, doing its dance of life. Make your boldest dance moves!
