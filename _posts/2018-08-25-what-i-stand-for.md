@@ -2,10 +2,9 @@ Here is a list of personal values that I find are important to me, with a brief 
 
 Independent Thinking
 
-I believe in the value of thinking for yourself, deploying rationality in a rigorous scientific way.
-As Immanuel Kant said, “Have the courage to use your own intelligence”.
-Thinking is no doubt important: Blaise Pascal believed that thinking is the only way for us humans to “nobilitate” ourselves.
-It is what distinguishes humans from other animals in the first place.
+I believe in the value of thinking for yourself, deploying rationality and logic in a rigorous way.
+As Immanuel Kant said: “have the courage to use your own intelligence”.
+Thinking is no doubt important: Blaise Pascal believed that thinking is the only way for us humans to “nobilitate” ourselves, as it is what distinguishes humans from other animals in the first place.
 
 But thinking by following the herd is very different from thinking independently by yourself.
 In fact, the courage required in choosing to be alone and closer to the truth - instead of being wrong but in good company - is extremely rare, even more rare than genius.
@@ -14,20 +13,24 @@ Mark Twain said: “whenever you are part of the majority, it is time to pause a
 Human Agency
 
 I believe that people can choose what they think, what they believe, what they do and who they are.
-This means that external circumstances such as other people, nature and luck can be taken out of the equation for living life.
+I concede that it is not clear whether we truly enjoy free will, and I believe we only have partial and limited control over our lives.
+Still, we do have full control over a few fundamental variables that directly impact our quality of life.
+This means that external circumstances such as other people, nature and luck can be taken out of the equation in living life.
 
-I don’t believe in luck as a driving force for the realization of future events, but just as a tool for interpreting the unknown reasons that caused any given event in the past.
-Luck makes sense only looking backwards, as an interpretation tool to cover our own ignorance of the truth.
+I don’t believe in luck as a driving force for the realization of future events, as it is just as a conceptual tool for interpreting the unknown reasons which contributed in causing a given event in the past.
+Luck makes sense only looking backwards, as an interpretation tool to cover our own partial ignorance of the truth.
 Luck does not determine the future: not by any means.
 
 
-Individualism
+Individual Freedom
 
-Everything that you ever acknowledge happening (and that which you might fail to see) happens inside yourself, as yourself.
+I believe that individual freedom is more important than common peace and order.
 
 I feel that the individual dimension is the first place from where to start creating a better society, and not the other way around.
-I believe the individual is (as should be) free from traditional authorities.
-I believe that individual freedom is more important than common peace and order.
+Everything that you ever acknowledge happening (and that which you might fail to see) happens inside yourself, as yourself.
+
+I believe the individual is (as should be) conceptually free from traditional authorities: parents, peer pressure, school, institutions, even law enforcement.
+The only real limits that appear to be restricting of individual freedom are the universal physical laws.
 
 
 Self-Mastery
