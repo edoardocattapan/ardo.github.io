@@ -17,7 +17,7 @@ I concede that it is not clear whether we truly enjoy free will, and I believe w
 Still, we do have full control over a few fundamental variables that directly impact our quality of life.
 This means that external circumstances such as other people, nature and luck can be taken out of the equation in living life.
 
-I don’t believe in luck as a driving force for the realization of future events, as it is just as a conceptual tool for interpreting the unknown reasons which contributed in causing a given event in the past.
+I don’t believe in luck as a driving force for the realization of future events, as it is just a conceptual tool for interpreting the unknown reasons which contributed in causing a given event in the past.
 Luck makes sense only looking backwards, as an interpretation tool to cover our own partial ignorance of the truth.
 Luck does not determine the future: not by any means.
 
@@ -30,7 +30,7 @@ I feel that the individual dimension is the first place from where to start crea
 Everything that you ever acknowledge happening (and that which you might fail to see) happens inside yourself, as yourself.
 
 I believe the individual is (as should be) conceptually free from traditional authorities: parents, peer pressure, school, institutions, even law enforcement.
-The only real limits that appear to be restricting of individual freedom are the universal physical laws.
+The only real limits that appear to be restricting of individual freedom are the universal laws of physics.
 
 
 Self-Mastery
@@ -46,7 +46,7 @@ In general, staying mentally "on top" of things (being the bigger person, mainta
 
 I agree that we should strive for greater collective enlightenment and I think that starts with individual enlightenment.
 But once we are enlightened, there is indeed much we should strive to do to continue being our true enlightened selves.
-We should strive to be the best version of ourselves, keep the great values of humanity alive and expand our questions.
+We should strive to be the best version of ourselves, to keep the great values of humanity alive and to expand our questions.
 
 
 Leading by example
@@ -55,7 +55,7 @@ Humans need to be inspired to wake up everyday and live a satisfactory life, dri
 From a top-down perspective, myths, religions and political authorities work very well in uniting people under a common purpose and enable the control of the masses.
 But from a bottom-up perspective, these power structures have always represented an easy way for individuals to delegate responsibility for the bigger-picture thinking.
 I believe we do not need myths, religions or other conceptual authorities of any kind.
-I believe we need examples of fellow human beings who lead by doing things, showing us what is possible.
+I believe we need examples of fellow human beings who lead by doing things first, showing us what is possible.
 
 In essence, I stand for taking full responsibility for everything in life, not complaining about uncontrollable external factors, independently choosing what to think, knowing yourself and always trying to improve and master yourself, doing the things you are interested about and pursuing your projects with a deterministic and practical approach.
 This will make you a better person, the World a better place and inspire everybody around you.
