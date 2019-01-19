@@ -4,6 +4,8 @@ This understanding brings to deep self-acceptance: compassion for the human fini
 Self-acceptance is the doorway to self-love: the best perspective one could have on reality and life.
 Self-love expands the self beyond one's physical boundaries, to embrace one's best and worst characteristics and happenings, the surroundings, the momentary circumstances, the other living things (people, animals, plants and nature) with no spatial limits.
 
+You are what you love.
+
 When you love yourself, you get that you are not your body, and you are not your thoughts.
 Your body is just a part of what you now feel you truly are. It is the temporary, ever-changing biological aggregation of cells which makes you present and relevant in the physical dimension of reality. But your body is leaving you, it's changing, getting old, and one day it will stop working altogether.
 And you are not your thoughts, as these come from chemical connections in your neural system (the brain) which are tied to facts which are no longer as relevant (past and future) compared to the reality you get to experience in the present moment with your (very limited) perceptions of reality.
