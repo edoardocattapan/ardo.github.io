@@ -4,6 +4,8 @@ And I remember being shocked at the stupidity of his question, as he had serious
 
 His question was based on the false assumption that space is something independent of the space-time fabric of the universe, when in fact the accelerating "expansion" of the universe is perhaps best described with a metaphor: if you live in a 2-dimensional world (like a cartoon character inside a piece of paper) and suddenly a point appears out of nowhere in your world and as you keep watching, you see the point expanding into a circle, with its circumference becoming bigger and bigger, this could be explained as a 3D cone figure penetrating through your 2D world in which you live, and since all you know is 2D, you see a circle expanding, when in fact there is a 3D cone maintaining its shape but moving through your world.
 
+By the way, this is also a great way to explain why the flow of time is really just an illusion: individual things in reality are not performing a movement (or dance) through time, but rather our perception moves (sheds light) from one dance move to the next one.
+Everything already exists: our perception is zooming in-and-out of a fractal-like and chaotic structure of information.
 In this sense, eveything we see here in our Universe whose behaviour we cannot explain with the current knowledge we have at hand could be explained by "projections" of moving multi-dimensional structures into our 3D fabric of reality.
 
 On a similar fashion, instead of asking "what's outside of the universe?", we might ask "what happens after death?"
