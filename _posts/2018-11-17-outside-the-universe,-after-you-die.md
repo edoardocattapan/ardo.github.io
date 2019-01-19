@@ -8,7 +8,7 @@ By the way, this is also a great way to explain why the flow of time is really j
 Everything already exists: our perception is zooming in-and-out of a fractal-like and chaotic structure of information.
 In this sense, eveything we see here in our Universe whose behaviour we cannot explain with the current knowledge we have at hand could be explained by "projections" of moving multi-dimensional structures into our 3D fabric of reality.
 
-On a similar fashion, instead of asking "what's outside of the universe?", we might ask "what happens after death?"
+As we ask "what's outside the universe?", or similarly "what's before the Big Bang?", we might ask "what happens after death?"
 
 Based on the theory of biocentrism, which encapsulates the latest scientific findings in physics and biology, we realize that this question too is based on a false assumption: that time is independent of life and consciousness.
 
