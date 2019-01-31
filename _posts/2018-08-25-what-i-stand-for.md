@@ -1,6 +1,6 @@
 Here is a list of personal values that I find are important to me, with a brief explanation of why.
 
-Independent Thinking
+**Independent Thinking**
 
 I believe in the value of thinking for yourself, deploying rationality and logic in a rigorous way.
 As Immanuel Kant said: “have the courage to use your own intelligence”.
@@ -10,7 +10,7 @@ But thinking by following the herd is very different from thinking independently
 In fact, the courage required in choosing to be alone and closer to the truth - instead of being wrong but in good company - is extremely rare, even more rare than genius.
 Mark Twain said: “whenever you are part of the majority, it is time to pause and reflect”.
 
-Human Agency
+**Human Agency
 
 I believe that people can choose what they think, what they believe, what they do and who they are.
 I concede that it is not clear whether we truly enjoy free will, and I believe we only have partial and limited control over our lives.
