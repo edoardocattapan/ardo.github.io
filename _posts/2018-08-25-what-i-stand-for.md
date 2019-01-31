@@ -10,7 +10,7 @@ But thinking by following the herd is very different from thinking independently
 In fact, the courage required in choosing to be alone and closer to the truth - instead of being wrong but in good company - is extremely rare, even more rare than genius.
 Mark Twain said: “whenever you are part of the majority, it is time to pause and reflect”.
 
-**Human Agency
+**Human Agency**
 
 I believe that people can choose what they think, what they believe, what they do and who they are.
 I concede that it is not clear whether we truly enjoy free will, and I believe we only have partial and limited control over our lives.
@@ -22,7 +22,7 @@ Luck makes sense only looking backwards, as an interpretation tool to cover our 
 Luck does not determine the future: not by any means.
 
 
-Individual Freedom
+**Individual Freedom**
 
 I believe that individual freedom is more important than common peace and order.
 
@@ -33,7 +33,7 @@ I believe the individual is (as should be) conceptually free from traditional au
 The only real limits that appear to be restricting of individual freedom are the universal laws of physics.
 
 
-Self-Mastery
+**Self-Mastery**
 
 I believe the best way to live life is to be self-aware and improve one’s self-knowledge and efficacy over time.
 I also believe that, generally, the best way to serve the world is to master yourself first.
@@ -51,7 +51,7 @@ But once we are enlightened, there is indeed much we should strive to do to cont
 We should strive to be the best version of ourselves, to keep the great values of humanity alive and to expand our questions.
 
 
-Leading by example
+**Leading by example**
 
 Humans need to be inspired to wake up everyday and live a satisfactory life, driven by positive values and guided by sound principles.
 From a top-down perspective, myths, religions and political authorities work very well in uniting people under a common purpose and enable the control of the masses.
