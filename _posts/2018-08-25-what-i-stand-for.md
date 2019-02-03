@@ -44,6 +44,8 @@ Deciding to take responsibility, to take care of yourself and to be honest with 
 In this ongoing process of self-mastery, one key idea I found works wonders for me is to mentally locate my self in a relaxed-accepting-grateful state of mind that is dis-associated in principle from my thoughts and external circumstances.
 Even though I find it difficult to maintain this state for more than a few days in a row, I know that third-person view of my reality is my best place to live my life: where I feel my best and I perform my best.
 
+"*My formula for greatness in a human being is amor fati: that one wants nothing to be different, not forward, not backward, not in all eternity. Not merely bear what is necessary, still less conceal it… but love it.*" - Friedrich Nietzsche
+
 In general, staying mentally "on top" of things (being the bigger person, maintaining perspective, being aware) is very good.
 
 I agree that we should strive for greater collective enlightenment and I think that starts with individual enlightenment.
