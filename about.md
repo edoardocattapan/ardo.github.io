@@ -8,4 +8,4 @@ The intention with this blog is to share a few independent reasonings I have bui
 
 Thank you for reading.
 
-“A man may die, nations may rise and fall, but an idea lives on. Ideas have endurance without death.” ― John F. Kennedy
+“*A man may die, nations may rise and fall, but an idea lives on. Ideas have endurance without death.*” ― John F. Kennedy
