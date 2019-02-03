@@ -12,6 +12,8 @@ And you are not your thoughts, as these come from chemical connections in your n
 
 The "self" is not confined into the physical limits of the brain, or the nervous system, or even the feedback-loop that is in place when you interact with an IT device (smartphone, PC, etc.), known as the "extended mind". The "self" is really not confined at all, if not just by your awareness level of its lack of confines.
 
+"*My formula for greatness in a human being is amor fati: that one wants nothing to be different, not forward, not backward, not in all eternity. Not merely bear what is necessary, still less conceal it… but love it.*" - Friedrich Nietzsche
+
 One practical way to embrace this idea and live in coherence with it is to think of reality as a video game.
 In fact, both physical reality and video games are evolving environments rich with information, responding to underlying logics and patterns. Or at least so it would seem to us.
 So if you think of your body in the physical world as you would consider your avatar character in an action video game, seeing him from a higher standpoint located behind the avatar, you start to see that as the avatar interacts within the environment it is surrounded by, your "self" is really placed outside of the screen altogether, in another universe, projeting its presence on the video game like a "God intelligence", aware of everything (including the distinction of the two worlds) in the a-temporal present moment of the video game.
