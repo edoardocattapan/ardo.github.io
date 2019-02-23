@@ -1,6 +1,7 @@
 Scientific literature in neuroscience and studies in human behavioral biology do not provide support for the idea that we have free will.
 
 According to Wikipedia, free will is "the ability to choose between different possible courses of action unimpeded".
+
 I do not think this is a strong definition, because an individual with the ability to choose between different courses of action is still necessarily inscribed in a given process of causal happenings – either deterministic or random –, of which this "ability to choose" is just a part.
 
 In fact, with my attempts to think independently about this topic, I come to define free will as the hypothetical possibility for a subject to be able and be free to have chosen deliberately any option other than the one which the subject, at one point, chooses.
