@@ -17,16 +17,20 @@ Of course the critical issue here is the “independent” adjective attributed 
 In fact, no choice can be taken independently or without the influence of neurological chemistry, genetic factors, factors originated during fetal development of the individual, cultural and environmental factors, biological factors of the human species and the conditions of the Universe we live in.
 Neither pure determinism, nor pure randomness, nor any combination of the two, allows for "free will" to make sense.
 
-Free will is an illusion. And it is a very stubborn one, because it is the rational premise at the foundation of all subjective judgments of any sorts: choices like good versus bad, right versus wrong, true versus false, just versus unjust.
+Free will is an illusion.
+
+And it is a very stubborn one, because it is the rational premise at the foundation of all subjective judgments of any sorts: choices like good versus bad, right versus wrong, true versus false, just versus unjust.
 Free will makes room for the (apparently) legitimate ability to subjectively judge things.
 It is therefore at the basis of hatred as well as praise.
 It is at the basis of criminal justice and appreciation of things.
 
 Nonetheless, it is due and important to acknowledge that annihilating free will does not decrease the legitimacy of personal willpower, or grit, or determination: these factors continue to be relevant as ever in playing a role in what happens.
+
 Annihilating free will does not annihilate a sense of self-authorship, self-determination and personal agency.
 It's true that I am not an independent, free agent; but this does not mean that I don't have agency over my life.
 In fact, human agency is very prominent in living life.
-It is precisely your self-created sense of agency over deciding who you are, what you believe in and what you do that originates the direction of your life.
+
+**It is precisely your self-created sense of agency over deciding who you are, what you believe in and what you do that originates the direction of your life.**
 
 In a world where people - rightfully - don't believe in free will, there is no basis for condemning criminals (as they are not directly imputable for any bad actions), nor for awarding prices or celebrating individual talents or collective achievements.
 It would be a very different world than the one we live in right now, both culturally and actually. It would be a world where people just be themselves and live their lives, being more understanding of the reasons behind bad actions from bad people, and thus a more compassionate world.
