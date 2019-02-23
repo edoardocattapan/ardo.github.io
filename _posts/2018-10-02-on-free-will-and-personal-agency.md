@@ -19,7 +19,7 @@ Neither pure determinism, nor pure randomness, nor any combination of the two, a
 
 Free will is an illusion.
 
-And it is a very stubborn one, because it is the rational premise at the foundation of all subjective judgments of any sorts: choices like good versus bad, right versus wrong, true versus false, just versus unjust.
+And it is a very stubborn one, because it is the rational premise at the foundation of subjective judgments of any sorts: choices like good versus bad, right versus wrong, true versus false, just versus unjust.
 Free will makes room for the (apparently) legitimate ability to subjectively judge things.
 It is therefore at the basis of hatred as well as praise.
 It is at the basis of criminal justice and appreciation of things.
