@@ -38,7 +38,9 @@ It would be a very different world than the one we live in right now, both cultu
 So we finally come to be aware of the fact that we are not the actors in the movie of our lives: we really are closer to being like the spectators who watch the movie as it unfolds.
 But we are not just sitting at the cinema: we are clearly inside the movie itself.
 Also, we may just be the spectators and not at all the actors of our lives, but we are aware spectators: the kind of spectators who can watch the movie unfold and, at the same time, be very aware of the fact that we are just in the spectator seat and not at all in the driver’s seat – no matter how engaging reality is for the mind, nor how stubbornly the illusion of free will persists.
+
 The annihilation of free will does not mean the annihilation of awareness.
+
 As spectators of reality, we can be aware that we are being the spectators, at which point we become aware of the cinema environment we are in, which then indicates that what we are is really the space of possibility for anything of this sort to exist in the first place: the actors, the movie, the spectators, the cinema and the illusory reality where all of this could and does take place.
 
 I am also convinced that destiny is a myth, in so we do have agency over the future.
