@@ -1,4 +1,4 @@
-This post looks at the idea of **free will** from different angles, since scientific literature in neuroscience and human behavioral biology studies, as of today, do not provide evidence or solid support for the idea that free will exists.
+This post looks at the idea of **free will** from different angles, since scientific literature in neuroscience and human behavioral biology studies, as of today, do not provide evidence or solid support for the idea that "free will" exists at all.
 
 According to Wikipedia, free will is "*the ability to choose between different possible courses of action unimpeded*".
 
