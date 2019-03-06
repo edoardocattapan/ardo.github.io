@@ -1,4 +1,4 @@
-Scientific literature in neuroscience and studies in human behavioral biology do not provide support for the idea that we have free will.
+This post looks at the idea of **free will** from different angles, since scientific literature in neuroscience and human behavioral biology studies, as of today, do not provide evidence or solid support for the idea that free will exists.
 
 According to Wikipedia, free will is "*the ability to choose between different possible courses of action unimpeded*".
 
@@ -17,7 +17,7 @@ Of course the critical issue here is the “independent” adjective attributed 
 In fact, no choice can be taken independently or without the influence of neurological chemistry, genetic factors, factors originated during fetal development of the individual, cultural and environmental factors, biological factors of the human species and the conditions of the Universe we live in.
 Neither pure determinism, nor pure randomness, nor any combination of the two, allows for "free will" to make sense.
 
-Free will is an illusion.
+**Free will is an illusion.**
 
 And it is a very stubborn one, because it is the rational premise at the foundation of subjective judgments of any sorts: choices like good versus bad, right versus wrong, true versus false, just versus unjust.
 Free will makes room for the (apparently) legitimate ability to subjectively judge things.
