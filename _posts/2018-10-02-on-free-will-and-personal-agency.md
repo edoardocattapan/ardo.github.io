@@ -2,7 +2,7 @@ This post looks at the idea of **free will** from different angles, since scient
 
 According to Wikipedia, free will is "*the ability to choose between different possible courses of action unimpeded*".
 
-I do not think this is a strong definition, because an individual with the ability to choose between different courses of action is still necessarily inscribed in a given process of causal happenings – either deterministic or random –, of which this "ability to choose" is a part of.
+I do not think this is a strong definition, because an individual with the ability to choose between different courses of action is still necessarily inscribed in a given process of causal happenings – either deterministic or random –, of which this "ability to choose" (as well as the individual) is a part of.
 
 In fact, with my attempts to think independently about this topic, I come to define free will as the hypothetical possibility for a subject to be able and be free to have chosen deliberately any option other than the one which the subject, at one point, chooses.
 To me, free will makes sense as a retrospective concept: to assess whether there is any space for a free, subjective determination of reality between a process of happenings (deterministic and/or random) which are not caused by choices independently taken by the same subject.
