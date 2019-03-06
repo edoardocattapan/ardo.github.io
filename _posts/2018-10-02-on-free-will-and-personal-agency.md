@@ -1,8 +1,8 @@
 Scientific literature in neuroscience and studies in human behavioral biology do not provide support for the idea that we have free will.
 
-According to Wikipedia, free will is "the ability to choose between different possible courses of action unimpeded".
+According to Wikipedia, free will is "*the ability to choose between different possible courses of action unimpeded*".
 
-I do not think this is a strong definition, because an individual with the ability to choose between different courses of action is still necessarily inscribed in a given process of causal happenings – either deterministic or random –, of which this "ability to choose" is just a part.
+I do not think this is a strong definition, because an individual with the ability to choose between different courses of action is still necessarily inscribed in a given process of causal happenings – either deterministic or random –, of which this "ability to choose" is a part of.
 
 In fact, with my attempts to think independently about this topic, I come to define free will as the hypothetical possibility for a subject to be able and be free to have chosen deliberately any option other than the one which the subject, at one point, chooses.
 To me, free will makes sense as a retrospective concept: to assess whether there is any space for a free, subjective determination of reality between a process of happenings (deterministic and/or random) which are not caused by choices independently taken by the same subject.
@@ -26,7 +26,8 @@ It is at the basis of criminal justice and appreciation of things.
 
 Nonetheless, it is due and important to acknowledge that annihilating free will does not decrease the legitimacy of personal willpower, or grit, or determination: these factors continue to be relevant as ever in playing a role in what happens.
 
-Annihilating free will does not annihilate a sense of self-authorship, self-determination and personal agency.
+**Annihilating free will does not annihilate a sense of self-authorship, self-determination and personal agency.**
+
 It's true that I am not an independent, free agent; but this does not mean that I don't have agency over my life.
 In fact, human agency is very prominent in living life.
 
@@ -39,13 +40,13 @@ So we finally come to be aware of the fact that we are not the actors in the mov
 But we are not just sitting at the cinema: we are clearly inside the movie itself.
 Also, we may just be the spectators and not at all the actors of our lives, but we are aware spectators: the kind of spectators who can watch the movie unfold and, at the same time, be very aware of the fact that we are just in the spectator seat and not at all in the driver’s seat – no matter how engaging reality is for the mind, nor how stubbornly the illusion of free will persists.
 
-The annihilation of free will does not mean the annihilation of awareness.
+**The annihilation of free will does not mean the annihilation of awareness.**
 
 As spectators of reality, we can be aware that we are being the spectators, at which point we become aware of the cinema environment we are in, which then indicates that what we are is really the space of possibility for anything of this sort to exist in the first place: the actors, the movie, the spectators, the cinema and the illusory reality where all of this could and does take place.
 
-I am also convinced that destiny is a myth, in so we do have agency over the future.
+I am also convinced that destiny is a myth and that we do have agency over the future.
 
-In this sense, acknowledging other realizations (the self is a space of awareness and love-consciousness), we can suddenly come to the realization that this moment that you are reading these words and thinking and just being is the place where you exist.
+In this sense, acknowledging other insights (i.e. the self is a space of awareness and love-consciousness), we can come to the realization that this moment that you are reading these words, and thinking and just being, is the whole place where you exist.
 This place is not located in your head, nor in your heart: it is not a physical place contained inside the physical world where your body is immersed.
 
-This place is an awareness point, or better an awareness level or a "state" of consciousness, possibly configured as the space in which everything happens.
+This place is an awareness point, or better an awareness level, or even better a *state of consciousness*, possibly configured as the space in which reality happens.
