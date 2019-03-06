@@ -4,7 +4,7 @@ According to Wikipedia, free will is "*the ability to choose between different p
 
 I do not think this is a strong definition, because an individual with the ability to choose between different courses of action is still necessarily inscribed in a given process of causal happenings – either deterministic or random –, of which this "ability to choose" (as well as the individual) is a part of.
 
-In fact, with my attempts to think independently about this topic, I come to define free will as the hypothetical possibility for a subject to be able and be free to have chosen deliberately any option other than the one which the subject, at one point, chooses.
+With my attempts to think independently about this topic, I come to define free will as the hypothetical possibility for a subject to be able and be free to have chosen deliberately any option other than the one which the subject, at one point, chooses.
 To me, free will makes sense as a retrospective concept: to assess whether there is any space for a free, subjective determination of reality between a process of happenings (deterministic and/or random) which are not caused by choices independently taken by the same subject.
 In other words, whenever you are presented with a choice (e.g. grey or blue) and you choose one option, then you have free will when you could have chosen - in a free way - the other option.
 And I would argue that, because of the very definition of retrospective concepts, with free will we are artificially re-interpreting the past by adding an arbitrary ability to interfere with the real conditions that made the choice possible in the first place.
