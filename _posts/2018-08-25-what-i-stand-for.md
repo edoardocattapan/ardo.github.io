@@ -61,5 +61,5 @@ But from a bottom-up perspective, these power structures have always represented
 I believe we do not need myths, religions or other conceptual authorities of any kind.
 I believe we need examples of fellow human beings who lead by doing things first, showing us what is possible.
 
-In essence, I stand for taking full responsibility for everything in life, not complaining about uncontrollable external factors, independently choosing what to think, knowing yourself and always trying to improve and master yourself, doing the things you are interested about and pursuing your projects with a deterministic and practical approach.
+In essence, I stand for taking full responsibility over one's life, for feeling gratitude for the chance of being alive, for independently choosing what to think and striving to get better at knowing yourself to improve and master yourself, for pursuing your interests with a deterministic practical approach, and for enjoying the journey of life by affirming yourself and staying close to each other.
 This will make you a better person, the World a better place and inspire everybody around you.
