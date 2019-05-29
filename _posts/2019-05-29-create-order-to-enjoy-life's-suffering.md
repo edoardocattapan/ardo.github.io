@@ -12,19 +12,19 @@ Given that we all suffer, we fundamentally want to spend our time alive dealing 
 One way we deal with the problem of suffering is through momentarily forgetting about it by thinking about something good.
 A more radical way we avoid psychological suffering is by taking substances such as drugs, alcohol and sugar, or by indulging in very short-term pleasurable activities.
 
-Another way we deal with our suffering is by artificially creating "altars" of values in the name of which we can bear living through all the sufferings.
-This is what the idea of God serves for, be it an idolized divine entity, life itself, nature or ourselves.
+Another way we deal with our suffering is by artificially creating "altars" of values in the name of which we can bear living through all our sufferings. These "altars" of values are ordered structures of ideas at the theoretical foundations of religious beliefs: be it our own spirit, or the idea of divine entities, the unfathomable nature of the Universe, or the process of life itself.
 
-There is another way we deal with the problem of suffering: by noticing unexpected pockets of harmonious order in our experience.
+There is another way we deal with the problem of suffering: by noticing unexpected pockets of harmonious order in our conscious experience.
 This is the beauty of nature and art: music, sculptures, paintings, cinema, photography, poetry, stories.
 Other than nature, all the art forms are artificially created by people (artists), but other people experience them as unexpected pockets of harmonious order.
 
-Finally, there is the "flow experience": a combination of self-created and unexpected moments when we experience a rich harmonious order of information and an effortless, self-fulfilling enjoyment in performing an activity.
+Finally, there is the "flow experience": a fine balance of artificially-created and unexpected moments when we experience a very rich, harmonious order of information and feel an effortless and deeply fulfilling enjoyment in performing an activity for its own sake.
 
-The way to endure suffering is outlined by the typical stoic principles of living through life.
-This is the best way to live: facing suffering, accepting it, taking responsibility for it, bearing all sufferings with nobility, self-respect, self-reliance, dignity, and to care for each other by being present and helping bear the suffering for other people in all possible ways, leading by example. We must withstand all hardships with a deep sense of resilience, as difficulties are not only part of life, but the very game we play.
+In a broader sense, and most effectively for our everyday experience of life, the way to endure suffering is outlined by the foundational principles of stoic philosophy for living through life: facing suffering, accepting it, taking responsibility for it, bearing all sufferings with nobility, self-respect, self-reliance, dignity, and to care for each other by being present and helping bear the suffering for other people in all possible ways, leading by example.
+We must withstand all hardships with a deep sense of resilience, as difficulties are not only a major part of life, but underlie at the very logic of the game we play by being alive.
 
-The purpose of life, then, is to be an artist: to create pockets of harmonious order for other people to enjoy.
-And life itself is the opportunity to make our greatest work of art: its meaning is to show how we choose to bear the necessary suffering.
+**The purpose of life, then, is to be an artist: to create pockets of harmonious order for other people to enjoy.**
 
-These "pockets of harmonious order", for you to appreciate and to create, are to be found everywhere: in nature, in music, in dance, in literature, in poetry, in all art-forms (paintings, sculptures, photography, film, theatre), in sports, in family and community organization, in architecture, in all branches of knowledge, in scientific research, in philosophical enquiry.
+**And life itself is the opportunity to make our greatest work of art: its meaning is to show how we choose to bear the necessary suffering.**
+
+These "pockets of harmonious order", for you to appreciate, to create, sustain and promote, are to be found everywhere: in nature, in music, in dance, in literature, in poetry, in all art-forms (paintings, sculptures, photography, film, theatre), in sports, in family and community organization, in architecture, in all branches of knowledge, in scientific research and - perhaps ultimately - in philosophical enquiry.
