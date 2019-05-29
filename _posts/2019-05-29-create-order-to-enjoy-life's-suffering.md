@@ -2,10 +2,10 @@ Floating in a universe of chaotic information, we are here to create and expand 
 Ultimately, by creating our pockets of order, we come to find beauty and meaning in the necessity of our existence, which is permeated by suffering.
 
 Suppose that from the moment you were born, you lived your life in a passive mode, reacting to events and external impositions, and never showed any intention, any commitment or any active involvement in anything.
-This life of yours would certainly be full of psychological suffering, as you would question its meaning and would struggle to find a strong enough reason for you to continue to be alive, that is to continue being a passive victim of all sorts of sufferings.
+This life of yours would certainly be full of psychological suffering, as you would question its meaning and would struggle to find a strong enough reason for you to continue to be alive, that is to continue being a passive victim of life and experience all sorts of sufferings.
 
-The opposite approach to living life is clearly the way to go.
-The reason you should live in an active mode, and choose to do something in the first place, is to intentionally create harmonious structures of order for you and other people to better deal with and endure all of life's necessary sufferings, and even to grow common knowledge and ultimately enjoy life.
+The opposite direction to living your life is clearly the way to go.
+The reason you should live in an active mode, and choose to do something instead of nothing, is to show courage and intentionally choose to create harmonious structures of order for you and other people to experience, in order for you to better cope with all of life's necessary sufferings, and even to grow common knowledge and ultimately enjoy life.
 
 Given that we all suffer, we fundamentally want to spend our time alive dealing with the problem of suffering, be it psychological or physical, imposed either by circumstance or self-imposed.
 
