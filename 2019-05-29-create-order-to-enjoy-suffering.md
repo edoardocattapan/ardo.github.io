@@ -1,4 +1,4 @@
-Suppose that from the moment you were born, you lived your life in a passive mode, reacting to events and orders from other people, and never showed any intention, any commitment or any active involvement in anything.
+Suppose that from the moment you were born, you lived your life in a passive mode, reacting to events and impositions from other people, and never showed any intention, any commitment or any active involvement in anything.
 This life of yours would certainly be full of psychological suffering, as you would question the meaning of it and struggle to find one that is meaningful enough for you to continue to be alive, being a passive victim of all sorts of sufferings.
 
 The opposite approach to living life is clearly the way to go.
