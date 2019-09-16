@@ -9,11 +9,11 @@ Death, ageing and a short life-span are up to us to be confronted with, but not 
 
 We should choose carefully which enemies to fight, keeping in mind that our most precious finite resource is time:
 
- - Beat short longevity, and you've made your most precious resource more abundant.
+- Beat short longevity, and you've made your most precious resource more abundant.
 
- - Beat ageing, and you've made your most precious resource more enjoyable.
+- Beat ageing, and you've made your most precious resource more enjoyable.
 
- - Beat death, and you've made your most precious resource worthless.
+- Beat death, and you've made your most precious resource worthless.
 
 Now the choice should be easy: staying younger and living longer are just more convenient options than the one we cannot afford.
 
