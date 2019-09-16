@@ -18,8 +18,8 @@ We should choose carefully which enemies to fight, keeping in mind that our most
 Now the choice should be easy: staying younger and living longer are just more convenient options than the one we cannot afford.
 
 Arguably, death is good for the species because it ensures regeneration as the necessary condition for the innovation of the species.
-On the contrary, ageing is bad for all, because it only brings about slow and painful biological processes on your body and mind, with a negative impact on your loved ones and the broader community in many different ways: psychological, financial and physical above all.
-Finally, a short life-span is bad - mostly for you and your loved ones - as you have little time to enjoy the ride.
+On the contrary, a short life-span is bad - mostly for you and your loved ones - as you have little time to enjoy the ride.
+Finally, ageing is bad for all, because it only brings about slow and painful biological processes on your body and mind, with a negative impact on your loved ones and the broader community in many different ways: psychological, financial and physical above all.
 
 Trying to achieve immortality seems like an excruciating fight against the forces of nature, but achieving any marginal improvement on the longevity and ageing fronts - to lengthen our lifespans and avoid getting old - is within our reach.
 
