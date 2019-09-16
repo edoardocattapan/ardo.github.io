@@ -26,5 +26,5 @@ Trying to achieve immortality seems like an excruciating fight against the force
 With a longer lifespan you would continue working and spend more time with your loved ones.
 Living to 150 years old - and not just 90 - you have more chances to learn new things, grow as a person, share your gifts and help raise better children: you can create more good things, for yourself and for others.
 
-People like to say you should live everyday as if it were your last, because your death is - surely enough - getting closer.
-But the day you live as if it were your last could instead be the day when death is far away, when you could live as if you truly had more time and you could continue the fight against the dying of the light.
+People like to say you should live everyday as if it were your last, because death is getting closer.
+But the day you live as if it were your last could instead be the day when death is far away, when you could live as if you truly had more time on your hands and you could continue to fight against the dying of the light.
