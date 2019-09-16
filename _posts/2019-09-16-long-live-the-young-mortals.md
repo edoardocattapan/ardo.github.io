@@ -1,4 +1,5 @@
 Let's start with the sad truth.
+
 The average human lifespan in first-world countries was considerably shorter just a few decades ago, caused by worse quality of life, health conditions and overall wellbeing than today.
 Inevitably, even longer-lived humans must die eventually, as we approach - slowly but surely - an old age of physical weakness and solitude, only to face - helpless - our mortality.
 
