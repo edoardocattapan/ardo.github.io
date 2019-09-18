@@ -10,7 +10,7 @@ In life I am trying out many different things, from competitive sailing to entre
 
 My intention with this blog is to share a few independent reasonings I have built upon some ideas that are already established.
 
-Thank you for reading: I hope you can find some value here and you will make something out of it.
+Thank you for reading: I hope you can find some value here and will make something out of it.
 
 Edoardo
 
