@@ -4,8 +4,15 @@ title: About
 permalink: /about/
 ---
 
-The intention with this blog is to share a few independent reasonings I have built upon ideas that are already out there.
+Hi, I am Edoardo Cattapan.
 
-Thank you for reading.
+In life I am trying out many different things, from competitive sailing to entrepreneurship, to investing, to a career as a business manager, but one constant way of thinking I have always been entertaining in my mind is to independently enquire some unexplored territory of ideas with my own intellect.
+
+My intention with this blog is to share a few independent reasonings I have built upon some ideas that are already established.
+
+Thank you for reading: I hope you can make something out of this.
+
+Edoardo
+
 
 “*A man may die, nations may rise and fall, but an idea lives on. Ideas have endurance without death.*” ― John F. Kennedy
