@@ -6,13 +6,13 @@ In politics, chaos is freedom and order is authority.
 As with most things that map along a spectrum, extremes in politics are a sign of a poor balance in the mind: excessively skewed towards either chaos (too much freedom is anarchy) or order (too much authority is totalitarism).
 
 For me, I value individual freedom.
-I stand for freedom and liberty, free expression of the individual, and simpathize for liberalism, liberism and libertarianism; but in order to avoid the bad effects of too much freedom (anarchism), I choose to regard conservatism's sane and ordered frame of mind as necessary too.
+I stand for freedom and liberty, free expression of the individual, and simpathize for liberalism, liberism and libertarianism; but in order to avoid anarchy, I choose to regard conservatism's sane and ordered frame of mind as a necessary ingredient for thinking about how to live well in society.
 In fact, as conservatives know, the first and necessary condition for enjoying freedom is to contain it.
-Histroy has shown us that people can only enjoy freedom when it is regulated, and its extreme expressions avoided.
+Histroy has shown us too many times that people can only enjoy freedom when it is regulated and its extreme expressions are avoided.
 
-In addition to finding a balanced position along the chaos-order spectrum in my own mind, I have two key arguments to make when I think about where do I stand in politics and what I believe.
+In addition to finding a balanced position along the chaos-order spectrum in my own mind, I have two key arguments to make when I think about where I stand and what I believe in politics.
 
-**I endorse people who engage in independent critical thinking and take decisive resolute actions with integrity.**
+In any field, **I endorse people who engage in independent critical thinking and take decisive resolute actions with integrity.**
 
 With these two simple guiding principles, it is not difficult for me to discern good and bad, or strong and weak, in politics.
 
