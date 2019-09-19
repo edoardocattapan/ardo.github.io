@@ -23,7 +23,7 @@ Holding on to some time-tested values such as "family", "religion", "nation" or 
 When choosing a political party to vote, I take into consideration the proposed political program as much as the character of the leader.
 I consider decisive characters to be the ideal political leaders: charismatic individuals who are not afraid to take resolute action, at all given times.
 I want a competent and resolute leader who will, with the highest integrity, both say what they do and do what they say.
-This means I will only support a leader who has a clear and strong vision for the future: it is the only way that makes sense.
+This means I will only support a leader who has a clear and strong vision for the future: integrity and resolution are the only way that being a good political leader can even make sense.
 
 I do support such leaders, when I see them.
 They are rare in politics, because true strength and integrity are rare traits in any individual.
