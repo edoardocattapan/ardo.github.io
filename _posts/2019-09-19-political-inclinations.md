@@ -5,7 +5,7 @@ In politics, chaos is freedom and order is authority.
 
 As with most things that map along a spectrum, extremes in politics are a sign of a poor balance in the mind: excessively skewed towards either chaos (too much freedom is anarchy) or order (too much authority is totalitarianism).
 
-For me, I value individual freedom.
+For me, **I value individual freedom.**
 I stand for freedom and liberty, free expression of the individual, and simpathize for liberalism, liberism and libertarianism; but in order to avoid anarchy, I choose to regard conservatism's sane and ordered frame of mind as a necessary ingredient for thinking about how to live well in society.
 In fact, as conservatives know, the first and necessary condition for enjoying freedom is to contain it.
 Histroy has shown us too many times that people can only enjoy freedom when it is regulated and its extreme expressions are avoided.
