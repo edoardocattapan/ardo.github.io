@@ -1,6 +1,6 @@
 Where do our political inclinations come from?
 
-It is believed that our political inclinations could come from our relationship with our own father, because he is the first authority figure which gave the primary shape to our own sensibility for setting the right balance between chaos and order in our life.
+Some psychologists believe that our political inclinations come from our relationship with our own father, because he is the first authority figure who helps to mold our own sensibility for setting the right balance between chaos and order in our lives.
 In politics, chaos is freedom and order is authority.
 
 As with most things that map along a spectrum, extremes in politics are a sign of a poor balance in the mind: too much skewed towards either chaos (anarchy) or order (totalitarism).
