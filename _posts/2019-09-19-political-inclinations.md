@@ -3,7 +3,7 @@ Where do our political inclinations come from?
 Some psychologists believe that our political inclinations come from our relationship with our own father, because he is the first authority figure who helps to mold our own sensibility for setting the right balance between chaos and order in our lives.
 In politics, chaos is freedom and order is authority.
 
-As with most things that map along a spectrum, extremes in politics are a sign of a poor balance in the mind: too much skewed towards either chaos (anarchy) or order (totalitarism).
+As with most things that map along a spectrum, extremes in politics are a sign of a poor balance in the mind: excessively skewed towards either chaos (anarchy) or order (totalitarism).
 
 For me, I value individual freedom.
 I stand for freedom and liberty, free expression of the individual, and simpathize for liberalism, liberism and libertarianism; but in order to avoid the bad effects of too much freedom (anarchism), I choose to regard conservatism's sane and ordered frame of mind as necessary too.
