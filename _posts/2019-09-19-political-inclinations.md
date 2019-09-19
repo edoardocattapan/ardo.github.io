@@ -14,7 +14,7 @@ In addition to finding a balanced position along the chaos-order spectrum in my 
 
 In any field, **I endorse people who engage in independent critical thinking and take decisive resolute actions with integrity.**
 
-With these two simple guiding principles, it is not difficult for me to discern good and bad, or strong and weak, in politics.
+Critical thinking, resolution and integrity. With these simple guiding principles I find it smooth to effectively discern the good from the bad, or the strong from the weak, in politics.
 
 I stand for critical thinking as the opposite of dogma: everything is up for critical re-discussion.
 Being able to rediscuss and change the Constitution, national borders, international treaties, immigration policy, economic or fiscal policies: this is good.
