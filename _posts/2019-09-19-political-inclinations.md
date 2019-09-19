@@ -27,4 +27,3 @@ This means I will only support a leader who has a clear and strong vision for th
 
 I do support such leaders, when I see them.
 They are rare in politics, because true strength and integrity are rare traits in any individual.
-If I don't see one at a given moment, I am sure I would feel compelled to act accordingly.
