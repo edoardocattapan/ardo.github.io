@@ -16,7 +16,7 @@ In any field, **I endorse people who engage in independent critical thinking and
 
 Critical thinking, resolution and integrity. With these simple guiding principles I find it smooth to effectively discern the good from the bad, or the strong from the weak, in politics.
 
-I stand for critical thinking as the opposite of dogma: everything is up for critical re-discussion.
+Critical thinking is the opposite of dogma: I strongly believe everything should be up for discussion.
 Being able to rediscuss and change the Constitution, national borders, international treaties, immigration policy, economic or fiscal policies: this is good.
 Holding on to some time-tested values such as "family", "religion", "nation" or "God" and to avoid critical thinking around them: this is bad and stupid.
 
