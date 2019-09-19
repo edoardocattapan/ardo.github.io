@@ -1,5 +1,4 @@
 Where do our political inclinations come from?
-
 Some psychologists believe that our political inclinations come from our relationship with our own father, because he is the first authority figure who helps to mold our own sensibility for setting the right balance between chaos and order in our lives.
 In politics, chaos is freedom and order is authority.
 
