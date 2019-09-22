@@ -4,14 +4,14 @@ In politics, chaos is freedom and order is authority.
 
 As with most things that map along a spectrum, extremes in politics are a sign of a poor balance in the mind: excessively skewed towards either chaos (too much freedom is anarchy) or order (too much authority is totalitarianism).
 
-For me, **I value individual freedom.**
+For me, I value individual freedom.
 I stand for freedom and liberty, free expression of the individual, and simpathize for liberalism, liberism and libertarianism; but in order to avoid anarchy, I choose to regard conservatism's sane and ordered frame of mind as a necessary ingredient for thinking about how to live well in society.
 In fact, as conservatives know, the first and necessary condition for enjoying freedom is to contain it.
 Histroy has shown us too many times that people can only enjoy freedom when it is regulated and its extreme expressions are avoided.
 
 In addition to finding a balanced position along the chaos-order spectrum in my own mind, I have two key arguments to make when I think about where I stand and what I believe in politics.
 
-In any field, **I endorse people who engage in independent critical thinking and take decisive resolute actions with integrity.**
+In any field, I endorse people who engage in independent critical thinking and take decisive resolute actions with integrity.
 
 Critical thinking, resolution and integrity: with these guiding principles I find it smoother to coherently discern the good from the bad, or the strong from the weak, in politics.
 
@@ -34,6 +34,5 @@ I tend to agree with a socially liberal and fiscally conservative view of politi
 - government is minimized to excel at a few crucial services: public goods, legislation and justice, social security and defense;
 - taxes are low, public debt is minimized and military spending is contained to reduce public debt;
 - government spending is low: more focused and efficient on delivering public goods, ensuring equality of opportunity and justice, and investing in the best private research facilities for science, healthcare, education and innovation;
-- foreign policy is non-interventionist (working through international treaties, trade and diplomacy, with the exception of restrictive and selective interventions for defense purposes);
+- foreign policy is non-interventionist: working through international treaties, trade and diplomacy, with the exception of restrictive and selective interventions for defense purposes;
 - illegal immigration is avoided, as it threatens a nation's sentiments for safety, continuity of culture and is inconsistent with a nation's values and definition.
-
