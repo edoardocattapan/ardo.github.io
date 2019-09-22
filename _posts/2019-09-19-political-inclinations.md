@@ -28,7 +28,7 @@ They are rare in politics, because true strength and integrity are rare traits i
 
 So, exluding the extremes of left-wing and right-wing politics, I look at contemporary moderate views.
 Although I appreciate the positive attitude towards social reform and justice of the progressive left, I disagree with the socialist foundation of their political views, because I do not believe that rights are more important than duties, nor that equality of social condition is necessarily a good thing, especially if it is based on the false assumptions that merit and talent are equally (not normally) distributed across society, that people are all fundamentally very similar, and that people deserve to stay similar through their fundamental right to ask for equality.
-This whole socialist view of society and individuals is flawed in many ways, and most of all does not value the individual person as much as I do.
+This whole socialist view of society is deeply flawed and it does not value the individual person as much as I believe should be done.
 
 I am liberal and, at the same time, conservative for different reasons: liberal because liberals marry critical thinking more than dogmas when caring about individual freedom, and conservative because individual freedom needs to be contained in order to be enjoyed by all individuals living together as a society.
 
