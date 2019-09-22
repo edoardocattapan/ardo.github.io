@@ -26,7 +26,10 @@ This means I will only support a leader who has a clear and strong vision for th
 I do support such leaders, when I see them.
 They are rare in politics, because true strength and integrity are rare traits in any individual.
 
-So I am liberal and, at the same time, conservative for different reasons: liberal because liberals marry critical thinking more than dogmas, and conservative because freedom needs to be contained in order to be enjoyed by the people.
+
+Although I appreciate the positive attitude towards social reformation of the progressive left, I disagree and dislike the socialist foundation of their political views because I do not believe that rights are more important than duties, nor that equality of conditions is necessarily a good thing, especially if it is based on the false assumptions that merit and talent are equally (not normally) distributed across society, that people are all fundamentally very similar, and that people deserve to stay similar through their fundamental right to ask for equality.
+This whole socialist view of society and individuals is deeply flawed.
+I am liberal and, at the same time, conservative for different reasons: liberal because liberals marry critical thinking more than dogmas when caring about individual freedom, and conservative because individual freedom needs to be contained in order to be enjoyed by all individuals living together as a society.
 
 I tend to agree with a socially liberal and fiscally conservative view of politics:
 - individuals are free in thought, expression, enterprise, and free to choose on all ethical issues such as abortion or euthanasia (terminally ill people should be seen as individuals worthy of exceptional empathy, rather than people to be managed by a law);
