@@ -31,8 +31,9 @@ So I am liberal and, at the same time, conservative for different reasons: liber
 I tend to agree with a socially liberal and fiscally conservative view of politics:
 - individuals are free in thought, expression, enterprise, and free to choose on all ethical issues such as abortion or euthanasia (terminally ill people should be seen as individuals worthy of exceptional empathy, rather than people to be managed by a law);
 - private companies and associations are free, sectors of the economy are privatized and selectively deregulated;
-- government is minimized to excel at a few crucial services (i.e. public goods, legislation and justice, social security and defense);
-- taxes are low, government spending is low (more focused and efficient), public debt is minimized and military spending is contained to reduce public debt;
+- government is minimized to excel at a few crucial services: public goods, legislation and justice, social security and defense;
+- taxes are low, public debt is minimized and military spending is contained to reduce public debt;
+- government spending is low: more focused and efficient on delivering public goods, ensuring equality of opportunity and justice, and investing in the best private research facilities for science, healthcare, education and innovation;
 - foreign policy is non-interventionist (working through international treaties, trade and diplomacy, with the exception of restrictive and selective interventions for defense purposes);
 - illegal immigration is avoided, as it threatens a nation's sentiments for safety, continuity of culture and is inconsistent with a nation's values and definition.
 
