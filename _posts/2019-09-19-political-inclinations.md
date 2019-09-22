@@ -23,6 +23,16 @@ When choosing a political party to vote, I take into consideration the proposed 
 I consider decisive characters to be the ideal political leaders: charismatic individuals who are not afraid to take resolute action, at all given times.
 I want a competent and resolute leader who will, with the highest integrity, both say what they do and do what they say.
 This means I will only support a leader who has a clear and strong vision for the future: integrity and resolution are the only way that being a good political leader can even make sense.
-
 I do support such leaders, when I see them.
 They are rare in politics, because true strength and integrity are rare traits in any individual.
+
+So I am liberal and, at the same time, conservative for different reasons: liberal because liberals marry critical thinking more than dogmas, and conservative because freedom needs to be contained in order to be enjoyed by the people.
+
+I tend to agree with a socially liberal and fiscally conservative view of politics:
+- individuals are free in thought, expression, enterprise, and free to choose on all ethical issues such as abortion or euthanasia (terminally ill people should be seen as individuals worthy of exceptional empathy, rather than people to be managed by a law);
+- private companies and associations are free, sectors of the economy are privatized and selectively deregulated;
+- government is minimized to excel at a few crucial services (i.e. public goods, legislation and justice, social security and defense)
+- sectors are privatized and regulated, taxes are low, government spending is low (more focused and efficient), public debt is minimized and military spending is contained to reduce public debt;
+- foreign policy is non-interventionist (working through international treaties, trade and diplomacy, with the exception of restrictive and selective interventions for defense purposes);
+- illegal immigration is avoided, as it threatens a nation's sentiments for safety, continuity of culture and is inconsistent with a nation's values and definition.
+
