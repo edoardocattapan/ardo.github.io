@@ -1,5 +1,5 @@
 Where do our political inclinations come from?
-Some psychologists believe that our political inclinations come from our relationship with our own father, because he is the first authority figure who helps to mold our own sensibility for setting the right balance between chaos and order in our lives.
+There is a theory from psychology that our political inclinations come from our relationship with our own fathers, because the fathe figure is the first authority which helps us mold our own sensibility for setting the right balance between chaos and order.
 In politics, chaos is freedom and order is authority.
 
 As with most things that map along a spectrum, extremes in politics are a sign of a poor balance in the mind: excessively skewed towards either chaos (too much freedom is anarchy) or order (too much authority is totalitarianism).
@@ -40,3 +40,7 @@ I tend to agree with a socially liberal and fiscally conservative view of politi
 - government spending is low: more focused and efficient on delivering public goods, ensuring equality of opportunity and justice, and investing in the best private research facilities for science, healthcare, education and innovation;
 - foreign policy is non-interventionist: working through international treaties, trade and diplomacy, with the exception of restrictive and selective interventions for defense purposes;
 - illegal immigration is avoided, as it threatens a nation's sentiments for safety, continuity of culture and is inconsistent with a nation's values and definition.
+
+There is also a question of which is the best form of government to organize a society around, and clearly history shows us that the achievement of representative democracy in the Western world is rather important, as much as it fragile.
+Having thought about this, I maintain that the idea of an "adoptive aristocracy" has very good merits: that is, the governor-in-chief (be it an emperor, a president or a prime minister) should be able to appoint his own successor, chosen from a highly-competitive hierarchy of individuals who have consistently demonstrated qualities of integrity, courage, leadership, intelligence, honesty, and are highly competent and knowledgeable in the subjects of economy, law, international relations, geopolitics, local politics, ethics, psychology and so on. Once appointed, the new governor-elect should clearly set a practical vision of how he wants his nation to change under his leadership, only to be put under democratic vote of approval or rejection for his mandate.
+This way, the outcome of a competent leader is prioritized and the people retain the highest veto, while the negative aspects of populistic electoral campaigns and of corrupt oligarchies are contained.
