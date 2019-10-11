@@ -1,3 +1,13 @@
+Life is necessary suffering.
+This is true for all conscious human beings, first of all, psychologically: why do you experience pain and death? why do you suffer?
+Suffering for suffering is the basis where we start. But it does not justify any suicidal means to end one's suffering, or even to feel depressed, because as a conscious thinking-and-feeling individual, one is capable of recognizing that ordering reality into patterns of information through his own brain activity and electromagnetic frequencies of his body (thoughts, feelings, emotions, sensations, desires, fears, etc. vibrating at different frequency of vibration) is precisely what is creating the "state" of suffering.
+And suffering is just one psychological state you can create and be in.
+Just by going for a walk, or forcing a smile and expressing gratitude, or doing some excercise or just having a chat with a good friend, you can change your mood, thus shifting into a new "state" of happiness, confidence, joy, love, and many others.
+
+The necessity of being conscious for suffering is the very indicator for your power to experiment in creating new patterns of thoughts and feelings.
+It is by creating new patterns of order that you can find the ways to re-contextualize your suffering into an expanded framework of your being with your higher conscious powers.
+In so doing, you have transcended your suffering.
+
 Floating in a universe of chaotic information, we are here to create and expand pockets of order: new patterns of information, structures of atoms and ideas. However small, local, temporary or illusory, these "pockets of order" are what we are here to do in order for us to bear the necessity of life's condition of suffering.
 Ultimately, by creating our pockets of order, we come to find beauty and meaning in the necessity of our existence, which is permeated by suffering.
 
