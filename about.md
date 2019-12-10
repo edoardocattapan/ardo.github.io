@@ -6,7 +6,7 @@ permalink: /about/
 
 Hi, I am Edoardo Cattapan.
 
-In life I am trying out many different things, from competitive sailing to entrepreneurship, to investing, to a career as a business manager, but one constant way of thinking I have always been entertaining in my mind is to independently enquire some open territory of ideas with my own intellect.
+I like to try many different things in life and have done so, so far: from competitive international sailing to entrepreneurship, to investing, to a career as an investment analyst and a business manager. One constant way of thinking I always entertain in my mind is to try to think clearly and be wise about it: to independently enquire some open territory of ideas with my own intellect, to be a seeker at my own risk.
 
 My intention with this blog is to share a few independent reasonings I have built upon some ideas that are already established.
 
