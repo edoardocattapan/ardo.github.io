@@ -39,7 +39,17 @@ This question is a gateway to the deepest existential conundrum.
 But if you think simply about it, you can say that the idea of *nothing* is actually something.
 ***Nothing* is really an arbitrary imagination of lack of arbitrariness.**
 
+Clearly, nothing is actually *something*.
 By definition, you can only have an existential conundrum (or anything at all) in a something-world.
 In this sense, by unveiling where the concept of nothing *actually* comes from, we can undermine the legitimacy of the conundrum, suggesting a powerful truth: that *anything* is actually something – and necessarily so.
 
-Still, the question stands right in front of us.
+On the other extreme of the existential conundrum spectrum, we can say that something is, actually, nothing.
+This might seem hardly true at first, but our current understanding of quantum physics suggests that if an event is not against the laws of quantum physiscs, then it is guaranteed to happen.
+When you quantize space-time (applying quantum laws to the main concept of space-time in general relativity, in an attempt to unify the two fundamental theories in physics) you get an unstable, granular field of fluctuating bubbles of space-time (at the very tiny scale of quantum physics) popping in and out of existence by virtue of the inherent "quantum instability" of the nothingness they come from.
+In other words: since the act of creation is not forbidden by quantum phyisics, then the arising of *something out of nothing* was inevitable.
+
+Finally we see the paradox: nothing is something is nothing.
+
+The hidden truth this specular absurdity might be pointing to is that reality is most interesting at the extremes.
+
+The question of *why* is still right in front of us.
