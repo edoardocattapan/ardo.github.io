@@ -38,6 +38,6 @@ In other words, you only have the existential conundrum (or anything at all) in 
 
 ***Nothing* is really an arbitrary imagination of lack of arbitrariness.**
 
-In this sense, by unveiling where the concept of *nothing* actually comes from, we undermine the legitimacy of the conundrum, suggesting a powerful truth: that *anything* is actually something – and necessarily so.
+In this sense, by unveiling where the concept of nothing *actually* comes from, we undermine the legitimacy of the conundrum, suggesting a powerful truth: that *anything* is actually something – and necessarily so.
 
 Still, the question remains here in front of us.
