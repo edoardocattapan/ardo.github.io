@@ -36,8 +36,8 @@ This question is a gateway to the deepest existential conundrum ever.
 But if you think simply about it, you can say that the idea of “nothing” is actually something.
 In other words, you only have the existential conundrum (or anything at all) in a something-world.
 
-** *Nothing* is really an arbitrary imagination of lack of arbitrariness.**
+***Nothing* is really an arbitrary imagination of lack of arbitrariness.**
 
 In this sense, by unveiling where the concept of “nothing” actually comes from, we undermine the legitimacy of the conundrum, suggesting a powerful truth: that *anything* is actually something – and necessarily so.
 
-Still, the question is here in front of us.
+Still, the question remains here in front of us.
