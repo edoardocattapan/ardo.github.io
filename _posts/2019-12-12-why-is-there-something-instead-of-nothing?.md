@@ -10,7 +10,7 @@ Opposites might actually just be the same thing.
 
 Paradoxes like these are the walls we hit at the end of infinity.
 
-Infinity is actually so end-less and open a system that its laws and characteristics are not different than if it was a perfectly closed system.
+Infinity is actually so end-less and open a system that its laws and characteristics are not different than as if it was a perfectly closed system.
 The extreme open-endedness is such that it comes back to any arbitrarily closed confines.
 
 1/0 is impossible, because you cannot divide any number by 0, because 0 is nothing.
