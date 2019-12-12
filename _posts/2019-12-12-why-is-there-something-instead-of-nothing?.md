@@ -13,8 +13,11 @@ Paradoxes like these are the walls we hit at the end of infinity.
 Infinity is actually so end-less and open a system that its laws and characteristics are not different than as if it was a perfectly closed system.
 The extreme open-endedness is such that it comes back to any arbitrarily closed confines.
 
-1/0 is impossible, because you cannot divide any number by 0, because 0 is nothing.
-One over zero means something over nothing, which is an absurdity by definition.
+If you divide any number by 0, you get an *indefinite* result, because arithmetically 0 is nothing.
+Indefinite results are beyond the limits of what we grasp, just like the idea of infinity.
+Zero and infinity appear to be the same in their indefiniteness.
+
+1/0 means something out of nothing, which is an absurdity by definition.
 A fraction means the ratio of the quantity of the numerator over the contextual benchmark of the quantity of the denominator, so 2/3 just means the 66.66% of something.
 If you have a pie and divide it in three equal parts (something), you take 2 (something).
 The fraction is interpreted as something out of something. But 1/0 is some quantity out of no quantity: something out of nothing.
