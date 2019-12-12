@@ -27,12 +27,13 @@ The fraction is interpreted as something out of something. But 1/0 is some quant
 1/0 is creation.
 Creation is illogical.
 Creation is actually theoretically impossible.
-Still, apparently, there is something instead of nothing.
+Still, in the world we live in, there is *something* instead of nothing.
 
-If something was created out of nothing (the religious argument), then what created the creator and its act of creation?
+If this *something* was created out of nothing (the religious argument), then what *something* created the nothing-creator and its nothing-act of creation?
 It’s a simple logical fallacy: a circular reasoning, where we start with what we wanted to end up with as our answer.
+Even if any clever 5-year-old would be wise enough to discard any religious dogma for this very reason, unfortunately ignorance and clever storytelling have been powerful forces shaping peoples' hopes out of their problems, into religious beliefs.
 
-Ultimately, a better question is *why*: **why is there something instead of nothing?**
+A better question is *why*: **why is there something instead of nothing?**
 
 This question is a gateway to the deepest existential conundrum.
 But if you think simply about it, you can say that the idea of *nothing* is actually something.
