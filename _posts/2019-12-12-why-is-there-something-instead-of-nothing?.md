@@ -33,11 +33,11 @@ It’s a simple logical fallacy: a circular reasoning, where we start with what 
 Ultimately, a better question is *why*: **why is there something instead of nothing?**
 
 This question is a gateway to the deepest existential conundrum ever.
-But if you think simply about it, you can say that the idea of “nothing” is actually something.
+But if you think simply about it, you can say that the idea of *nothing* is actually something.
 In other words, you only have the existential conundrum (or anything at all) in a something-world.
 
 ***Nothing* is really an arbitrary imagination of lack of arbitrariness.**
 
-In this sense, by unveiling where the concept of “nothing” actually comes from, we undermine the legitimacy of the conundrum, suggesting a powerful truth: that *anything* is actually something – and necessarily so.
+In this sense, by unveiling where the concept of *nothing* actually comes from, we undermine the legitimacy of the conundrum, suggesting a powerful truth: that *anything* is actually something – and necessarily so.
 
 Still, the question remains here in front of us.
