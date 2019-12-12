@@ -22,7 +22,7 @@ A fraction means the ratio of the quantity of the numerator over the contextual 
 If you have a pie and divide it in three equal parts (something), you take 2 (something).
 The fraction is interpreted as something out of something. But 1/0 is some quantity out of no quantity: something out of nothing.
 
-Creation means something out of nothing.
+1/0 is creation.
 Creation is illogical.
 Creation is actually theoretically impossible.
 Still, apparently, there is something instead of nothing.
