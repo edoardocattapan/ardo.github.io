@@ -1,5 +1,5 @@
-When you’re being too different, or too far apart from everyone else, you are actually closer than ever to your inescapable social condition, or just to yourself.
-Any individual trying to be different than everybody else is actually getting closer to being alike anybody else who is trying as well.
+When you’re being too different from everyone else, or too far apart from society, you are actually closer than ever to your inescapable social condition, or just to yourself.
+Any individual trying to be more different than everybody else is actually getting closer to being alike anybody who is trying as well.
 
 If you move fast enough, approaching the danger zone of the theoretical limits of the speed of light, from your perspective you might actually be closer and closer to not moving at all, relative to everything else.
 So fast you don’t move.
