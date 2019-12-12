@@ -34,7 +34,7 @@ It’s a simple logical fallacy: a circular reasoning, where we start with what 
 
 Ultimately, a better question is *why*: **why is there something instead of nothing?**
 
-This question is a gateway to the deepest existential conundrum ever.
+This question is a gateway to the deepest existential conundrum.
 But if you think simply about it, you can say that the idea of *nothing* is actually something.
 In other words, you only have the existential conundrum (or anything at all) in a something-world.
 
