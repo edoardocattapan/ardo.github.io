@@ -3,7 +3,7 @@ A powerful thing about paradoxes is that they give you a glimpse into a sort of 
 When you’re being too different from everyone else, or too far apart from society, you are actually closer than ever to your inescapable social condition, or just to yourself.
 Any individual trying to be more different than everybody else is actually getting closer to being alike anybody else who is trying as well.
 
-If you move fast enough, approaching the danger zone of the theoretical limits of the speed of light, from your perspective you might actually be closer and closer to not moving at all, relative to everything else.
+If you move fast enough, approaching the theoretical limits of the speed of light, from your perspective you might actually be closer and closer to not moving at all, relative to everything else.
 So fast you don’t move.
 
 If you go further enough to an extreme of any spectrum, if you really push the envelope you might end up on the other side.
@@ -15,9 +15,9 @@ Paradoxes like these are the walls we hit at the end of infinity.
 Infinity is actually so end-less and open a system that its laws and characteristics are not different than as if it was a perfectly closed system.
 The extreme open-endedness is such that it comes back to any arbitrarily closed confines.
 
-If you divide any number by 0, you get an *indefinite* result, because arithmetically 0 is nothing.
-Indefinite results are beyond the limits of what we grasp, just like the idea of infinity.
-Zero and infinity appear to be the same in their indefiniteness.
+If you divide any number by 0, you get an *indefinite* result because, arithmetically, 0 means *nothing*.
+Indefinite results are beyond the limits of what we grasp well, just like the idea of *infinity*.
+By being indefinite, zero and infinity appear to be exactly the same.
 
 1/0 means something out of nothing, which is an absurdity by definition.
 A fraction means the ratio of the quantity of the numerator over the contextual benchmark of the quantity of the denominator, so 2/3 just means the 66.66% of something.
