@@ -6,7 +6,7 @@ permalink: /about/
 
 Hi, I am Edoardo Cattapan.
 
-I like to try different things in life, and some experiments went well so far: from competitive sailing to investing, to a career as an investment analyst and a startup manager, to entrepreneurship.
+I like to try doing different hard things in life, and some experiments so far went well: from competitive sailing to investing, to a career as an investment analyst and a startup manager, to entrepreneurship.
 
 This blog is another experiment, about me trying to think clearly and be wise, to independently enquire some open territory of ideas with my own intellect, to be a truth-seeker and a sense-maker at my own risk, for myself.
 
