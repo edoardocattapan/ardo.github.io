@@ -10,7 +10,7 @@ I like to try many different things in life and have done so: from competitive i
 
 This blog is another experiment, about one constant way of thinking I frequently entertain in my mind: to try to think clearly and be wise, to independently enquire some open territory of ideas with my own intellect, to be a truth-seeker and a sense-maker at my own risk, for myself.
 
-If you happen to like reading this blog, I hope you can find some value here and will make something out of it.
+If you happen to like reading this blog, I hope you can find some value here and you will make something out of it.
 
 Edoardo
 
