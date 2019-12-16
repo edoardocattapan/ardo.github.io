@@ -7,7 +7,7 @@ If you move fast enough, approaching the theoretical limits of the speed of ligh
 So fast you don’t move.
 
 If you go further enough to an extreme of any spectrum, if you really push the envelope you might end up on the other side.
-In the same way, if you push two things too far apart from each other, at some point they might just merge into sameness.
+In the same way, if you push two things too far apart from each other, at some point they might just merge into sameness. This is because "too far apart" might mean going to infinity, where the measure for distance begins to lose any relevance.
 Opposites might actually just be the same thing.
 
 Paradoxes like these are the walls we hit at the end of infinity.
