@@ -10,7 +10,7 @@ Creation, annihilation and the process of "becoming-in-time" are all, then, very
 **Creation and annihilation are impossible because what exists is a-temporal.**
 
 What exists has no nihilistic tendency of "becoming" nothing, which would concur into legitimizing the flow of time.
-What does-not-exist has no tendencies into a supposedly inherent power of creation, which would change nothing into something.
+What does-not-exist has no tendencies to a supposedly inherent power of creation, which would change nothing into something.
 
 Of that which does not exist, actually, there exist no properties to attach to, nor actions to attribute to.
 Talking about what does exist, there is a stark truth to be acknowledged: there is no possibility (or need) for change.
