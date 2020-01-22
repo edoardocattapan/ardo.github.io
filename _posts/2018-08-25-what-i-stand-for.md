@@ -1,5 +1,11 @@
 Here is a list of personal values that I find are important to me, with a brief explanation of why.
 
+
+**Simplicity**
+
+I believe in living with a sense of lightness, effortlessness or "flow" by maintaining a rested body, a focused mind and a peaceful aura or spirit.
+In practice, this means having few preoccupations and few priorities of things to do.
+
 **Independent Thinking**
 
 I believe in the value of thinking for yourself, deploying rationality and logic in a rigorous way.
@@ -9,6 +15,7 @@ Thinking is no doubt important: Blaise Pascal believed that thinking is the only
 But thinking by following the herd is very different from thinking independently by yourself.
 In fact, the courage required in choosing to be alone and closer to the truth - instead of being wrong but in good company - is extremely rare, even more rare than genius.
 Mark Twain said: “*whenever you are part of the majority, it is time to pause and reflect*”.
+
 
 **Human Agency**
 
