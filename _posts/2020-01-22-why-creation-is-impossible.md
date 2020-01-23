@@ -20,9 +20,16 @@ There is no possibility (or need) for things to shift from their status and tran
 There is no need for things to move across space.
 There is no need for things to move across time.
 
-Reality is what exists, and it is eternally fixed.
-The possibility for change is not possible.
+There is movement in the form of the particular shifting perceptions of consciousness.
+So *living* is real, but everything is itself and not changing into other things.
 
-If you think you see change, you can only do so by first - arbitrarily - creating the unfounded assumptions of the flow of time, where creation, annihilation and "becoming-in-time" also are necessary.
+If you think you see change, you can only do so by first - arbitrarily - creating the unfounded assumptions of the flow of time, where creation, annihilation and "becoming-in-time" also are necessary, in a world view where separate, indepentent parts of the whole are acting inside an environment which is itself an independent part of reality.
 
-I'll end here with something actually real: **everything is fixed, eternal, glorious** - you and me included.
+Separation is not real.
+What is real is only this exact moment, where everything exists.
+From the individual's perspective, consciousness is simultaneously the "creator" and the "witness" of what is real.
+Light exists only as your eyes are open or your skin senses the heat.
+
+You give and receive what is real, at the same moment.
+
+I'll end here with something actually real: **everything is here, eternal, glorious** - you and me included.
