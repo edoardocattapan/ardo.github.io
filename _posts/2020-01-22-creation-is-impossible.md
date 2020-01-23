@@ -4,18 +4,19 @@ In the same fashion, annihilation is the process by which something goes out of 
 When we accept creation and annihilation - birth and death - in our conception of the world, we easily come to connect the dots and paint the picture of "*becoming-in-time*".
 That is to say: the process by which *something* is non-existent, then it comes into existence, exists for a while, then goes into non-existence.
 
+The process of *becoming-in-time* strictly implies an irreversible flow of time and a nihilistic world view.
+Creation, annihilation and the process of "becoming-in-time" are all, then, very tightly interrelated and necessary for each other to legitimize the concept for the flow of time.
+
 For example, think of *you*: initially you did not exist, then you were born, coming into existence in this world, and you are now existing in a process of becoming-in-time, which is your life, towards your inevitable death, when you will go into non-existence again, for all eternity.
 Another example is the Christian tale: God created the world and humanity, who start from the Garden of Eden, time is passing by linearly and irreversibly, until the final Day of the Apocalypse.
 
-**In the western world, creation is the Genesis, annihilation is the Apocalypse, becoming-in-time is Darwin's theory of evolution, and the irreversible flow of time is the Second Law of Thermodynamics.**
+In the western world, creation is the Genesis, annihilation is the Apocalypse, becoming-in-time is the theory of evolution and the irreversible flow of time is the Second Law of Thermodynamics.
 
-The process of *becoming-in-time* strictly implies an irreversible flow of time and a nihilistic world view.
-
-Creation, annihilation and the process of "becoming-in-time" are all, then, very tightly interrelated and necessary for each other to legitimize the concept for the flow of time.
-
+This whole world view, be it pessimistic because of the dark Christian irony with the original sin and science's Law of entropy, or be it optimistic because of the theory of evolution and technological progress, is based on principles which stand solidly together but cannot survive a shifting ground - like a well-built wooden raft could not survive a sea storm.
 
 
 **Creation and annihilation are impossible because what exists is a-temporal.**
+
 
 What exists has no nihilistic tendency of "becoming" nothing, which would concur into legitimizing the flow of time.
 What does-not-exist has no tendencies to a supposedly inherent power of creation, which would change nothing into something.
