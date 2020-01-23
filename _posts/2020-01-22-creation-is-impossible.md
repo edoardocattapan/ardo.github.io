@@ -3,12 +3,17 @@ In the same fashion, annihilation is the process by which something goes out of 
 
 When we accept creation and annihilation - birth and death - in our conception of the world, we easily come to connect the dots and paint the picture of "*becoming-in-time*".
 That is to say: the process by which *something* is non-existent, then it comes into existence, exists for a while, then goes into non-existence.
+
 For example, think of *you*: initially you did not exist, then you were born, coming into existence in this world, and you are now existing in a process of becoming-in-time, which is your life, towards your inevitable death, when you will go into non-existence again, for all eternity.
 Another example is the Christian tale: God created the world and humanity, who start from the Garden of Eden, time is passing by linearly and irreversibly, until the final Day of the Apocalypse.
+
+**In the western world, creation is the Genesis, annihilation is the Apocalypse, becoming-in-time is Darwin's theory of evolution, and the irreversible flow of time is the Second Law of Thermodynamics.**
 
 The process of *becoming-in-time* strictly implies an irreversible flow of time and a nihilistic world view.
 
 Creation, annihilation and the process of "becoming-in-time" are all, then, very tightly interrelated and necessary for each other to legitimize the concept for the flow of time.
+
+
 
 **Creation and annihilation are impossible because what exists is a-temporal.**
 
