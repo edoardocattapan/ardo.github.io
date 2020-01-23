@@ -30,6 +30,6 @@ What is real is only this exact moment, where everything exists.
 From the individual's perspective, consciousness is simultaneously the "creator" and the "witness" of what is real.
 Light exists only as your eyes are open or your skin senses the heat.
 
-You give and receive what is real, at the same moment.
+**You author and play what is real, at the same moment.**
 
 I'll end here with something actually real: **everything is here, eternal, glorious** - you and me included.
