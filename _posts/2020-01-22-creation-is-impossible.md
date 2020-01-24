@@ -11,7 +11,7 @@ Another example is the Christian tale: God created the world and humanity, who s
 
 In the western world, creation is the Genesis, annihilation is the Apocalypse, *becoming-in-time* is the theory of evolution and the irreversible flow of time is the Second Law of Thermodynamics.
 
-This whole world view, be it pessimistic because of the dark Christian irony with the original sin and science's Law of entropy, or be it optimistic because of the theory of evolution and technological progress, is based on principles which stand solidly together but cannot survive a shifting ground - like a well-built wooden raft could not survive a sea storm.
+This whole world view, be it pessimistic because of the dark Christian irony with the original sin and science's Law of entropy, or be it optimistic because of the theory of evolution and technological progress, is based on principles which stand very solidly together but float on the surface of a much deeper truth - like a well-built wooden raft floating on the surface of the ocean can only survive until the first sea storm to get sunk into the depths of the ocean.
 
 
 **Creation and annihilation are impossible because what exists is a-temporal.**
