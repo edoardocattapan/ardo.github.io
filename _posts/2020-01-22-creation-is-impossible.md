@@ -23,21 +23,22 @@ What does-not-exist has no tendencies to a supposedly inherent power of creation
 Of that which does not exist, actually, there exist no properties to attach to, nor actions to attribute to.
 Talking about what does exist, there is a stark truth to be acknowledged: there is no possibility (or need) for change.
 
-There is no possibility (or need) for things to *become" something other than which they are.
-There is no possibility (or need) for things to shift from their status and transform into something else.
+There is no possibility (or need) for things to "become" something other than what they are.
+There is no possibility (or need) for things to shift from their status to transform into something else.
 There is no need for things to move across space.
 There is no need for things to move across time.
 
-There is movement in the form of the particular shifting perceptions of consciousness.
-So *living* is real, but everything is itself and not changing into other things.
+**There is movement in the form of the subjective shifting perceptions of consciousness.
+So *living* is real, but everything is itself and does not change into other things.**
 
-If you think you see change, you can only do so by first - arbitrarily - creating the unfounded assumptions of the flow of time, where creation, annihilation and *becoming-in-time* also are necessary, in a world view where separate, indepentent parts of the whole are acting inside an environment which is itself an independent part of reality.
+If you think you see change, you can only do so by first - arbitrarily - creating the unfounded assumption of an irreversible flow of time, where creation, annihilation and *becoming-in-time* also are necessary, in a worldview where separate, indepentent parts of the whole are acting independently inside an environment, which would itself be an independent part of reality.
+This is all made up.
 
 Separation is not real.
 What is real is only this exact moment, where everything exists.
 From the individual's perspective, consciousness is simultaneously the *creator* and the *witness* of what is real.
-Light exists only as your eyes are open or your skin senses the heat.
+Light exists for you only as your eyes are open to see it, or your skin senses the heat.
 
-**You author and play what is real, at the same moment.**
+**You author and play what is real, in this same moment.**
 
-I'll end here with something actually real: **everything is here, eternal, glorious** - you and me included.
+I'll end here with something actually real: **everything is here, eternal, glorious** - you of course included.
