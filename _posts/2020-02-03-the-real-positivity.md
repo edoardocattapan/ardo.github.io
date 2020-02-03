@@ -7,8 +7,8 @@ Optimism is not concerned with the future, it is concerned with the *present*, q
 So if you believe that the future could be better than the present, most probably you are not an optimist by definition.
 Granted that the perception of the present moment is constantly shifting, being an optimist is being contempt with the current frame of reality as it is now shaped in front of you.
 
-It pays to remind that everything is the *present* moment.
-Even forward-looking ideas about the future are ideas about the present moment.
+It pays to remind that everything happens in the *present* moment.
+Even those forward-looking ideas about the future are ideas in and about the present moment.
 Fear, anxiety, hope, regret may concern something *out* of the current state-of-the-world, but all they really are is the shapers of the current state-of-the-world.
 
 If you think about the future and feel better, you are feeling better now, in the present.
@@ -18,10 +18,11 @@ Hoping means implicitly admitting that things could be better than they are; whi
 In this sense, wanting to help somebody is implicitly admitting that they are *not* ok as they are.
 Like hope, help is foundationally pessimistic.
 
-**What is better than hope or help is acceptance and gratitude**.
+What is better than hope or help is **acceptance and gratitude**.
 
 Things are what they are.
-
 Accept that all is fine - and actually, it could not be better.
+
+In fact, **the only change that is real or desirable is the *perspective shift* within one's own conscious experience**.
 
 *“My formula for greatness in a human being is amor fati: that one wants nothing to be different, not forward, not backward, not in all eternity. Not merely bear what is necessary, still less conceal it… but love it.”* - Friedrich Nietzsche
