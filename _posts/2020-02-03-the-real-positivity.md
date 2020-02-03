@@ -23,3 +23,5 @@ Like hope, help is foundationally pessimistic.
 Things are what they are.
 
 Accept that all is fine - and actually, it could not be better.
+
+*“My formula for greatness in a human being is amor fati: that one wants nothing to be different, not forward, not backward, not in all eternity. Not merely bear what is necessary, still less conceal it… but love it.”* - Friedrich Nietzsche
