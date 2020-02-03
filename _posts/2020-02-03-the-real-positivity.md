@@ -20,8 +20,10 @@ Like hope, help is foundationally pessimistic.
 
 What is better than hope or help is **acceptance and gratitude**.
 
-Things are what they are.
-Accept that all is fine - and actually, it could not be better.
+Things are what they are, and that is fine - actually, it could not be better.
+
+In fact, accept and feel grateful for the status quo, thus implicitly admitting that things are good indeed.
+You can practice acceptance and gratitude everyday on all matters: you will discover that you stop complaining, which is a very productive shift in your psychology and reality.
 
 In fact, **the only change that is real or desirable is the *perspective shift* within one's own conscious experience**.
 
