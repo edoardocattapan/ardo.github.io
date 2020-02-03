@@ -25,6 +25,8 @@ Things are what they are, and that is fine - actually, it could not be better.
 Instead of planning for a forced change on the world, only to realize we are now projecting negativity in our experience, we can accept the status quo and feel grateful for everything as it is, thus implicitly admitting this time that things are good indeed.
 You can practice acceptance and gratitude everyday on all matters: you will discover that you stop complaining, which is a very productive shift in your psychology and reality.
 
-In fact, **the only change that is real or desirable is the *perspective shift* within one's own conscious experience**.
+In fact, the only change that is real or desirable is the *perspective shift* within one's own conscious experience.
+
+**To change anything, change your perspective.**
 
 *“My formula for greatness in a human being is amor fati: that one wants nothing to be different, not forward, not backward, not in all eternity. Not merely bear what is necessary, still less conceal it… but love it.”* - Friedrich Nietzsche
