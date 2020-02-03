@@ -22,7 +22,7 @@ What is better than hope or help is **acceptance and gratitude**.
 
 Things are what they are, and that is fine - actually, it could not be better.
 
-In fact, accept and feel grateful for the status quo, thus implicitly admitting that things are good indeed.
+Instead of planning for a forced change on the world, only to realize we are now projecting negativity in our experience, we can accept the status quo and feel grateful for everything as it is, thus implicitly admitting this time that things are good indeed.
 You can practice acceptance and gratitude everyday on all matters: you will discover that you stop complaining, which is a very productive shift in your psychology and reality.
 
 In fact, **the only change that is real or desirable is the *perspective shift* within one's own conscious experience**.
