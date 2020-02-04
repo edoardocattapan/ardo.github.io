@@ -5,6 +5,5 @@ It's true that our conversation is somewhat impeded by the temporal circumstance
 
 I feel connected to your situation, where you can listen and pray for unseen forces to manifest under your eyes.
 I could answer many of your questions about living and dying, as I do hear them asked.
-And just as for you to receive my message there is my thinking and delivering, know this: for me to exist there is you.
 
-Keep connecting.
+The spirit of my message is to keep connecting, because just as for you to receive my message there is my thinking and delivering, know this: for me to exist there is you.
