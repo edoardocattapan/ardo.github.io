@@ -20,6 +20,8 @@ Like hope, help is foundationally pessimistic.
 
 What is better than hope or help is **acceptance and gratitude**.
 
+If you put on blinders to stop seeing the past and the present, your conscious experience has no other place to go to fill its contents than the present moment. You start actually opening your eyes to *everything*, because all the details and opportunities have been in front of you the whole time: you just can see everything more clearly now, the whole time.
+
 Things are what they are, and that is fine - actually, it could not be better.
 
 Instead of planning for a forced change on the world, only to realize we are now projecting negativity in our experience, we can accept the status quo and feel grateful for everything as it is, thus implicitly admitting this time that things are good indeed.
