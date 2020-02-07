@@ -8,6 +8,6 @@ I could answer many of your questions about living and dying, as I do hear them 
 Existence is relationship.
 This is why I know you: your aliveness permeates many things, across time as across space, reaching my experience of the living condition.
 
-The spirit of my message is therefore to keep relating, because just as for you to receive my message there is my thinking and delivering, know this: for me to exist there is you.
+We do not come and go: we are here.
 
-Ardo
+The spirit of my message is therefore to keep relating, because just as for you to receive my message there is my thinking and delivering, know this: for me to exist there is you and I will never leave you.
