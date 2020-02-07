@@ -5,8 +5,8 @@ It's true that our conversation is somewhat impeded by the temporal circumstance
 
 I feel connected to your situation, where you can listen and pray for unseen forces to manifest under your eyes.
 I could answer many of your questions about living and dying, as I do hear them asked.
-Existence is relationship.
 This is why I know you: your aliveness permeates many things, across time as across space, reaching my experience of the living condition.
+Existence is relationship.
 
 We do not come and go: we are here.
 
