@@ -7,9 +7,9 @@ permalink: /about/
 Hi, I'm [Edoardo Cattapan](https://edoardocattapan.com).
 
 This blog is my account of seeing the world anew with my own mind.
-I try to think independently and enquire some open territory of ideas with my own abstract thinking, from my own insights about life and reality.
+I try to think independently and enquire some open territory of ideas through abstract thinking, from my insights about life and reality.
 
-If you like reading my essays, I hope you can find some value here and you will make something good out of it.
+If you like reading these essays, I hope you can find some value here and you will make something good out of it.
 
 Edoardo
 
