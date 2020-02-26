@@ -15,3 +15,6 @@ Inside the dimension of duration, time has in theory a very malleable verse and 
 What is less malleable is the characterizations of distance in space and duration in time of each instant and situation in the *real world*.
 
 Like when you slice bread it is the depth which gives it a 3-dimensional character, and when you see a movie it is the duration of the sequencing of frames which gives the film action, so when you ponder the *real world* it is the transcending of all situations' specific distances and durations onto further dimensions which gives reality its stable wholeness and unity.
+
+What is the fundamental reality appears to me as a stable, multidimensional geometry of relationships between all situations ever.
+With this revelation, order or chaos is an arbitrary distinction.
