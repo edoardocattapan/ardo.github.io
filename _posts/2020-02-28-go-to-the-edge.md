@@ -15,7 +15,7 @@ It is by fully facing chaos that the spirit is alive and burning.
 It is by fully facing chaos that the body can breathe and move.
 It is by fully facing chaos that you enter the realm of beauty.
 
-You have to go to the edge to see everything anew.
+**You have to go to the edge to see everything anew.**
 
 The artist, the poet, the music composer, the film director, the writer can only design portals into that realm.
 These portals are paradoxical things in their own right: ordered and "real" things like a book, a painting, a landscape, a psycho-active chemical, a motion picture, a song, or a poem are literally the doors into new worlds.
