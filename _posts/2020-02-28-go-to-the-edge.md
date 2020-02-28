@@ -19,3 +19,10 @@ You have to go to the edge to see everything anew.
 
 The artist, the poet, the music composer, the film director, the writer can only design portals into that realm.
 You, on top of expressing your own artistic self, must choose to seek the hidden doors and walk through those portals.
+
+On the edge, things are full of their contradicting connotations.
+The world moves very very fast by staying firm.
+You are just a decaying flawed mortal, one with the stars that make up who you are.
+Like Naval Ravikant has put it: "*the gate to heaven is sealed with paradox*".
+
+Paradox is the key to heaven because embracing contradictions is the key to live on the edge.
