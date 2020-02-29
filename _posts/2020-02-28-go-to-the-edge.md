@@ -17,7 +17,7 @@ It is by fully facing chaos that you enter the realm of beauty.
 
 **You have to go to the edge to see everything anew.**
 
-Deeply reflecting upon the questions of paradox between the divinely designed cosmic order and the unkowable mistery of chance, of intuition and will, of mind and body, of acceptance and striving, of faith and reason, you can sense to be on the edge.
+Deeply reflecting upon the questions of paradox between the divinely designed cosmic order and the unknowable mistery of chance, of intuition and will, of mind and body, of acceptance and striving, of faith and reason, you can sense to be on the edge.
 Right there, on the edge, you stop seeing solely outwardly at the world, and you stop seeing solely inwardly at yourself, because you start seeing everything all at once, with an embracing glance.
 
 The breath is both conscious and unconscious: you do it and you let it happen. Embrace the paradox and live it.
