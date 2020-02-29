@@ -17,6 +17,15 @@ It is by fully facing chaos that you enter the realm of beauty.
 
 **You have to go to the edge to see everything anew.**
 
+Deeply reflecting upon the questions of divinely designed order and the unkowable mistery of chance, of intuition and will, of mind and body, of acceptance and striving, of faith and reason, you are at the edge.
+Right there, on the edge, you stop seeing solely outwardly at the world, and you stop seeing solely inwardly at yourself, because you start seeing everything all at once, with an embracing glance.
+
+The breath is both conscious and unconscious: you do it and you let it happen. Embrace the paradox and live it.
+
+The embracing glance lets you see not outward or inward, because you become the lens as well as everything else.
+
+In a way, the embracing glance makes you see once again toward something transcendentally new: it makes you believe.
+
 The artist, the poet, the music composer, the film director, the writer can only design portals into that realm.
 These portals are paradoxical things in their own right: ordered and "real" things like a book, a painting, a landscape, a psycho-active chemical, a motion picture, a song, or a poem are literally the doors into new worlds.
 You, on top of expressing your own artistic self, must choose to seek the hidden doors and walk through those portals.
