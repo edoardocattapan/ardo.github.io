@@ -24,7 +24,7 @@ The breath is both conscious and unconscious: you do it and you let it happen. E
 
 The embracing glance lets you see not outward or inward, because you become the lens as well as everything else.
 
-In a way, the embracing glance makes you see once again toward something transcendentally new: it makes you believe.
+In a way, the embracing glance makes you see once again toward something transcendentally new: now you believe.
 
 The artist, the poet, the music composer, the film director, the writer can only design portals into that realm.
 These portals are paradoxical things in their own right: ordered and "real" things like a book, a painting, a landscape, a psycho-active chemical, a motion picture, a song, or a poem are literally the doors into new worlds.
