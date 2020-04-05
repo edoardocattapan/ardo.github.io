@@ -3,7 +3,7 @@ Life is difficult because you live two lives in the same streak of being alive.
 One life is your personal story as an individual: your name, your personality, your interests and ambitions.
 This life is about independence, personal control and free will.
 
-The other life is your being a member of humanity, a member of civilazation, a ring inside the chain of human generations, a result of your parents as a possible means to new members of humanity, an anonimous piece for the continuation of the specie.
+The other life is your being a member of humanity, a member of civilization, a ring inside the chain of human generations, a result of your parents as a possible means to new members of humanity, an anonimous piece for the continuation of the specie.
 This life is about total dependece, and (in)voluntary surrender to bigger forces, for nature's necessities.
 
 While the two motives for existence find their intersection right along your life story-line, the discrepancies between the two are remarkable at a fundamental level.
