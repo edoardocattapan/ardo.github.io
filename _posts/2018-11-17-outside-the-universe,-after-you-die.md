@@ -22,6 +22,8 @@ When his old collaborator and friend Michele Besso died, Albert Einstein wrote:
 "*Now he has departed from this strange world a little ahead of me.
 That means nothing. People like us, who believe in physics, know that the distinction between past, present and future is only a stubbornly persistent illusion.*"
 
+“*Death is not an event in life: we do not live to experience death. If we take eternity to mean not infinite temporal duration but timelessness, then eternal life belongs to those who live in the present. Our life has no end in the way in which our visual field has no limits.*” - Ludwig Wittgenstein
+
 If there is no distinction between past, present and future, then the flow of time does not make sense and everything happens in the eternal present moment.
 But the present moment is not to be conceived as an infinitesimally small point of time (a moment) which is ever-present as "time goes on":  rather as the a-temporal "eternal moment", during which everything that ever was, is or will be, is.
 If this reasonates and is true, then we realize that what we call "the future" is already existing in the present moment all along and we are just not having access to it.
