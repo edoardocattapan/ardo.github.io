@@ -7,7 +7,8 @@ But how much less true is it that we live in days, and in years, and in decades?
 
 Uncertainty is the condition of our experience.
 
-The conscious experience can be so made in three: the mind, the spirit and the body. Three mechanisms of order immersed into chaos.
+The conscious experience can be so made in three: the mind, the spirit and the body.
+Three mechanisms of order immersed into chaos.
 Like a planet traveling inside the infinite black empty space, at the edge of our three ordered mechanisms chaos surrounds everything to the point of impregnating the very conscious experience itself.
 
 It is by fully facing chaos that the mind is free from what is already known.
@@ -35,5 +36,7 @@ The world moves very very fast by staying firm.
 Things can last as long as you want, and the future has full impact on the past.
 You are just a decaying flawed mortal, one with the stardust that makes up who you are.
 
-Like Naval Ravikant has put it, *the gate to heaven is sealed with paradox*.
-Paradox is the key to heaven because embracing contradictions is the key to living on the edge.
+“*Out on the edge you see all kinds of things you can’t see from the center. Big, undreamed-of things — the people on the edge see them first.*” — Kurt Vonnegut
+
+Like Naval Ravikant has put it: *the gate to heaven is sealed with paradox*.
+Paradox is the key to heaven because **embracing contradictions** is the key to living on the edge.
