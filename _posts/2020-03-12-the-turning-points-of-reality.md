@@ -21,8 +21,9 @@ In fact, saddle points are only a particular example of multi-dimensional inters
 
 A more general instance of multi-dimensional intersection points is a portal.
 A portal is something in this world that appears to be just like other common things, but is secretly a gateway door to other worlds.
-If it is to be accessed, any access point into other dimensions has to exist at the intersection with the present dimensions one is in.
-Some doors we can find in 3 dimensions are actually the gateways into new ways of perceiving and experiencing our multi-dimensional reality. 
+Any access point into other dimensions necessarily has to exist at the intersection with the present dimensions one is in.
+Some doors we can find in 3 dimensions are actually the gateways into new ways of perceiving and experiencing our multi-dimensional reality.
+Such a door might look like a book, a movie, a drug, or a question that you can ask here, but you can't see all the answers from where you stand.
 
 In the brain, mindfulness (or the interplay between left and right hemispheres) is a portal: the world of irrationality is accessed from a rational world, transporting our conscious perception from an ordered and logical world into a chaotic and irrational one, where rules are abandoned and things don't have to necessarily make sense as they did before.
 For example, you might open a fiction book to read a few paragraphs, and could find yourself inhabiting imaginary worlds where changes in how you perceive time, space, order, rules and priorities give you a totally new conscious experience.
