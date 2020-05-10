@@ -16,7 +16,8 @@ Like when you slice bread it is the depth which gives it a 3-dimensional charact
 
 The structure of reality is a multidimensional geometry where interconnected relationships arise within - and out of - a stable wholeness and unity.
 
-The "stability" of such geometry is represented, for example, in the curvature of space-time. In fact, 
+The "stability" of such geometry is represented, for example, in the curvature of space-time - so that when you see a ball curving its trajectory, you realize it is actually going in a straight line along a curved space.
+Gravity is one of the forces at play to make everything ultimately stable in the wholeness of multiple dimensions.
 
 What is the fundamental reality appears to me as a stable, multidimensional geometry of relationships between all situations ever.
 With this revelation, order or chaos is an arbitrary distinction.
