@@ -39,4 +39,4 @@ You are just a decaying flawed mortal, one with the stardust that makes up who y
 “*Out on the edge you see all kinds of things you can’t see from the center. Big, undreamed-of things — the people on the edge see them first.*” — Kurt Vonnegut
 
 Like Naval Ravikant has put it: *the gate to heaven is sealed with paradox*.
-Paradox is the key to heaven because **embracing contradictions** is the key to living on the edge.
+Living the paradox is the key to heaven because **embracing contradictions** is the key to living on the edge.
