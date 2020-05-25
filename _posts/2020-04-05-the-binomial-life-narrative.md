@@ -12,7 +12,7 @@ These radical differences of narrative, in both means and ends for being alive, 
 For example, a genetical drawback being evident in your physicality or even personality may hinder your possibilities at winning the game of natural selection controlled by the opposite sex (nature is most of all that which selects), even when building a family was one of your main goals in life.
 Or perhaps you have other hidden hereditary qualities that would otherwise have been a treasured heritage for the continuation of the specie, which will never be passed on.
 In this case, your personal life story and your specie's life story through you are showing opposite goals to be achieved by you.
-Of course in some cases it is possible that, to an extent, your personal goals can override your specie's goals as expressed through your life, when you decide to artificially inseminate or otherwise use condoms, for example.
+Of course in some cases it is possible that, to an extent, your personal goals can override your specie's goals as expressed through your life, when you decide to artificially inseminate or otherwise use contraceptives for birth control.
 In this case, the discrepancy manifests no particular malevolence nor incurs major difficulties to you.
 
 Through this framework of binomial life narratives, so many personal issues should be interpreted anew.
