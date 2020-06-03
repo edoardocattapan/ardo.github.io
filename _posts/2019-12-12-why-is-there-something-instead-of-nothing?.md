@@ -47,7 +47,7 @@ On the other extreme of the existential conundrum spectrum, we can say that some
 
 This might seem hardly true at first, but our current understanding of quantum physics suggests that if an event is not against the laws of quantum physics, then it is guaranteed to happen.
 When you quantize space-time (applying quantum laws to the main concept of space-time in general relativity, in an attempt to unify the two fundamental theories in physics) you get an unstable, granular field of fluctuating bubbles of space-time (at the tiny quantum scale) popping in and out of existence by virtue of the inherent "quantum instability" of the nothingness they seem to come from.
-In other words: since the act of creation is not forbidden by quantum phyisics, then the arising of *something out of nothing* was inevitable.
+In other words: since the act of creation is not forbidden by quantum physics, then the arising of *something out of nothing* was inevitable.
 
 Finally we see the paradox: nothing is something is nothing.
 
