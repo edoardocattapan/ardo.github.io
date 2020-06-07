@@ -17,6 +17,13 @@ The "self" is not confined into the physical limits of the brain, or the nervous
 One practical way to embrace this idea and live in coherence with it is to think of reality as a video game.
 In fact, both physical reality and video games are evolving environments rich with information, responding to underlying logics and patterns. Or at least so it would seem to us.
 So if you think of your body in the physical world as you would consider your avatar character in an action video game, seeing him from a higher standpoint located behind the avatar, you start to see that as the avatar interacts within the environment it is surrounded by, your "self" is really placed outside of the screen altogether, in another universe, projeting its presence on the video game like a "God intelligence", aware of everything (including the distinction of the two worlds) in the a-temporal present moment of the video game.
+
+"*Apart from the pulling and hauling stands what I am,
+Stands amused, complacent, compassionating, idle, unitary,
+Looks down, is erect, or bends an arm on an impalpable certain rest,
+Looking with side-curved head curious what will come next,
+Both in and out of the game and watching and wondering at it.*" - Walt Whitman
+
 This realization is the "awakening": a gestalt-like change in perspective where you become aware of this idea, gaining a sudden glimpse of a higher level of consciousness, which is the ultimate source of self-awareness and self-love.
 
 When you love yourself, you are the bigger person, you have a big-picture perspective on life, and so you can realize that you truly do not need anything that you don't already are. You are enough. You are whole. You are everything.
