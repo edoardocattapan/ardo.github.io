@@ -8,11 +8,12 @@ The stoics believed that *fata viam invenient*, or "**fate finds the way**".
 The phrase epitomises the comfort of fatalism without bringing along all its demotivating effects of inaction.
 
 To say that *fate finds the way* is not to say that the future is already written or that it is just a matter of letting the timer of the present steadily slide forward and things will be as they were always meant to be anyway.
-There is nothing set in stone.
 
 *Fate finds the way* means that things (actions, events) have consequences, and that those consequences are surely set to come.
 Do what you want and you will be rewarded with the consequences, one way or another.
 What those consequences are depends on both the **choices** one makes and the **necessities** one is faced with.
+
+If anything is set in stone, you hold the chisel.
 
 As well as to the power of destiny, the phrase speaks really to the power of choosing and accepting what is necessary.
 Under this light, tautologies such as *what will be will be* are even more true, because anything that has happened could be imbued with a sense of a-posteriori inevitability only to encounter the power of future-leaning choice coming from the opposite direction.
