@@ -16,6 +16,6 @@ What those consequences are depends on both the **choices** one makes and the **
 If anything is set in stone, you hold the chisel.
 
 As well as to the power of destiny, the phrase speaks really to the power of choosing and accepting what is necessary.
-Under this light, tautologies such as *what will be will be* are even more true, because anything that has happened could be imbued with a sense of a-posteriori inevitability only to encounter the power of future-leaning choice coming from the opposite direction.
+Under this light, a tautology like "*what will be will be*" is even more true, because anything that has happened could be imbued with a sense of a-posteriori inevitability only to encounter the power of future-leaning choice coming from the opposite direction.
 
 Therefore a practical mentality one should assume is a stoic sense of responsibility to choose to do the right thing: **to act upon what is in one's power and to accept what is not**, because the consequences of *these* choices are the new reality of future situations.
