@@ -12,7 +12,7 @@ Do what you want and you will be rewarded with your consequences, set to come in
 What those consequences are depends on both the **choices** one makes and the **necessities** one is faced with.
 
 As well as to the power of destiny, the phrase speaks really to the power of choosing and accepting what is necessary.
-Under this light, a tautology like "*what will be will be*" is even more true, because anything that has happened could be imbued with a sense of a-posteriori inevitability only to encounter the power of future-leaning choice coming from the opposite direction.
+Under this light, a tautology like "*what will be will be*" is even more true, because the (a-posteriori) inevitability of what has been coming all the way from our destiny converges with our future-leaning sense of choice and authorship, in this moment.
 
 If anything is set in stone, you hold the chisel.
 
