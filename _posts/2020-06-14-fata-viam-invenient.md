@@ -16,4 +16,4 @@ Under this light, a tautology like "*what will be will be*" is even more true, b
 
 If anything is set in stone, you hold the chisel.
 
-Therefore a practical mentality one should assume is a stoic sense of responsibility to choose to do the right thing: **to act upon what is in one's power and to accept what is not**, because the consequences of *these* choices are the new reality of future situations.
+In practice, one should assume a stoic sense of responsibility to choose to do the right thing. This means **to act upon what is within one's power and to accept what is without**. The consequences of *these* choices set the new realities of future situations.
