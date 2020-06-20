@@ -10,7 +10,7 @@ The phrase epitomises the comfort of fatalism without bringing along all its dem
 To say that *fate finds the way* is not to say that the future is already written or that it is just a matter of letting the timer of the present steadily slide forward and things will be as they were always meant to be anyway.
 
 *Fate finds the way* means that things (actions, events) have consequences, and that those consequences are surely set to come.
-Do what you want and you will be rewarded with the consequences, one way or another.
+Do what you want and you will be rewarded with your consequences, set to come in their ways.
 What those consequences are depends on both the **choices** one makes and the **necessities** one is faced with.
 
 If anything is set in stone, you hold the chisel.
