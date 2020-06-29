@@ -7,7 +7,7 @@ The scapegoat appears as the single member which is most vulnerable to coordinat
 Precisely for this perceived *absolute weakness* within its group, the scapegoat is the only single member in the group who is possibly capable of resolving all the violence within the group by channelling it and taking the blame on itself.
 Paradoxically, only who appears to be so strong a member as to be able to take on itself alone all the violence combined from within its group is a good candidate for scapegoating.
 
-So if you are complaining about anything, or blaming somebody else, you know who you are: just another anonimous, uninteresting, unimportant, forgettable and totally negligible member of the community you found yourself in.
+So if you are complaining about anything, or blaming somebody else, you know who you are: just another anonymous, uninteresting, unimportant, forgettable and totally negligible member of the community you found yourself in.
 The really interesting people, as the interesting ideas, are usually the ones who can take all the blame on themselves: by appearing weak to others they demonstrate uncommon internal strength.
 
 Another type of reality's turning points are saddle points.
@@ -29,7 +29,7 @@ Such a door might look like a book, a movie, a drug, or a question that you can 
 
 In the brain, mindfulness (or the interplay between left and right hemispheres) is a portal: the world of irrationality is accessed from a rational world, transporting our conscious perception from an ordered and logical world into a chaotic and irrational one, where rules are abandoned and things don't have to necessarily make sense as they did before.
 For example, you might open a fiction book to read a few paragraphs, and could find yourself inhabiting imaginary worlds where changes in how you perceive time, space, order, rules and priorities give you a totally new conscious experience.
-Portals can be found in many of our stories: inception, harry potter's platform 9 and 3/4s, alice in wonderland's little door in the garden, the secret life of walter mitty, charlie and the chocolate factory, psycho-active substances like LSD, dreams, or just through our own imagination.
+Portals can be found in many of our stories: Inception, Harry Potter's platform 9 and 3/4s, Alice in Wonderland's little door in the garden, the secret life of Walter Mitty, Charlie and the chocolate factory; or through psycho-active substances like LSD, dreams, or just through our own imagination.
 In these stories, portals are wardrobes, a looking glass, a rabbit hole, a platform in the train station, the clock hitting midnight in Paris, stroking the genie lamp, seeing the world through the lenses of a toy, a rat or a pet, and so on.
 In mathemathics, a good example of a portal is the square root of negative 1: it exists within the realm of real numbers, and it brings us to a whole new dimension of imaginary numbers.
 Another example might be virtual reality headsets: we can wear them, and suddenly our mind is overwhelmed with new logics of information which are other-worldly.
