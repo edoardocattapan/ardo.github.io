@@ -4,7 +4,7 @@ Rare, single points where reality resolves itself in interesting ways: a scapego
 A scapegoat is usually the weakest and strongest member of a community (be it a group of people or a set of ideas): the single member which appears less equal than everybody else.
 To everybody else, its distance from the average is singular enough to allow for unsolicited attacks to a practical target.
 The scapegoat appears as the single member which is most vulnerable to coordinated attacks from within its group, thus - being a single member - unlikely to effectively oppose resistance against any multi-directional (not necessarily simultaneous) attack towards it.
-Precisely for this perceived *absolute weakness* within its group, the scapegoat is the only single member in the group who is possibly capable of resolving all the violence within the group by channeling it and taking the blame on itself.
+Precisely for this perceived *absolute weakness* within its group, the scapegoat is the only single member in the group who is possibly capable of resolving all the violence within the group by channelling it and taking the blame on itself.
 Paradoxically, only who appears to be so strong a member as to be able to take on itself alone all the violence combined from within its group is a good candidate for scapegoating.
 
 So if you are complaining about anything, or blaming somebody else, you know who you are: just another anonimous, uninteresting, unimportant, forgettable and totally negligible member of the community you found yourself in.
