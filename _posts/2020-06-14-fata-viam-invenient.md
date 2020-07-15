@@ -8,7 +8,10 @@ The enticing allure of a destiny being already set in stone comes in strong form
 To say that *fate finds the way* is not to say that the future is already written or that it is just a matter of letting the timer of the present steadily slide forward and things will be as they were always meant to be anyway.
 
 *Fate finds the way* means that things (actions, events) have consequences, and that those consequences are surely set to come.
-Do what you want and you will be rewarded with your consequences, set to come in their ways.
+
+*"We are driven by fate and must yield to fate. No anxious fretting can alter the threads from that commanding spindle.”* - Seneca
+
+Do what you may and you are rewarded with the consequences: arriving your way and set to come in their ways.
 What those consequences are depends on both the **choices** one makes and the **necessities** one is faced with.
 
 As well as to the power of destiny, the phrase really speaks to the power of choosing and accepting what is necessary.
