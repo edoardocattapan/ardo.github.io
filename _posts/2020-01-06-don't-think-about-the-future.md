@@ -31,5 +31,8 @@ So how can you live life if time really doesn't pass?
 
 Well, instead of the flow of time, **we simply choose another variable to mentally extrapolate from the mind and use it explicitly to view and describe our conscious experience, and act *as* it (not *in* it).**
 
-Since we are conceptually free, now, from the known conventions, why not choose something good?
+One concrete example is viewing our movements as resource allocation efforts intended to achieve some goal (either biological or personal) by shifting the state of things into a different set up.
+In this frame, financial wealth can be conceived as the result of just being a better allocator in the present of human labour and financial capital resources to achieve a productive endeavour: an investor/entrepreneur doesn't really have to think about the future.
+
+Now, since we are conceptually free, finally, from the known conventions: why not choose something good?
 What about we start conceiving everything, now, from the unifying perspective of *love*?
