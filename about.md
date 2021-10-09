@@ -9,7 +9,7 @@ This blog is a series of essays to account for an independent intellectual enqui
 Here you are safe from tracking and free to read or copy the content: no cookies, no copyright.
 If you like reading these essays, I hope you can find some value here and make something good out of it.
 
-[Edoardo](https://edoardocattapan.com)
+[Ardo](https://edoardocattapan.com)
 
 
 “*A man may die, nations may rise and fall, but an idea lives on. Ideas have endurance without death.*” ― John F. Kennedy
