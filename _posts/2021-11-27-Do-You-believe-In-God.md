@@ -35,10 +35,8 @@ In life, things are done by you, but also to you: therefore all things end up ha
 To hope, believe, have faith and know that fate is here: this takes perspective.
 Fate coming, destiny being unrolled under the present, the self actualizing, reality unfolding, things being consciously alive seemingly and evidently manifest a deeper, grander truth.
 What that truth is is God.
-The grander the scheme of ideas, the weaker the words are to grasp it, the more meaningful the idea.
-God is, therefore God exists.
 
-In fact, God being here, we are it.
+The grander the scheme of ideas, the weaker the words are to grasp it, the more meaningful the idea.
 
 Like in John Conway's *Game of Life*, a conscious mind is a pattern-perceiving, pattern-seeking combination of matter, energy, information.
 A mind is an emergent pattern-seeking pattern, among a playingfield that is mostly made up of and populated by non-pattern-seeking patterns.
@@ -48,5 +46,8 @@ We are seeking answers to our questions, so there would better be a totalistic a
 
 Whereas the Christian God is personified and thought to be transcending of spacetime and into human affairs, Spinoza's God is immanent in all things as all-things is what God is.
 
-God's presence is literally evident in front of me and I could find it in all things: it is not a person who could phyisically transcend spacetime to create it, oversee it, judge it, intervene or rule on it.
+God's presence is literally evident in front of me and I could find it in all things: it is not a person who could phyisically transcend spacetime to create it, oversee it, judge it or intervene on it.
 
+God is, therefore God exists.
+
+In fact, God being here, we are it.
