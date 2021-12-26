@@ -39,7 +39,7 @@ God is here, therefore God exists.
 
 In fact, God being here, we are it.
 
-Like in John Conway's **Game of Life**, a conscious mind is a pattern-perceiving, pattern-seeking combination of matter, energy, information.
+Like in John Conway's *Game of Life*, a conscious mind is a pattern-perceiving, pattern-seeking combination of matter, energy, information.
 A mind is an emergent pattern-seeking pattern, among a playingfield that is mostly made up of and populated by non-pattern-seeking patterns.
 So all the mind seeks to be doing is to make all things so that there is tension in the world towards a totalistic answer that is God, giving retrospective meaning to the mind's inherent activity.
 
