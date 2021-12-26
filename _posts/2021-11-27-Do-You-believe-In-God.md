@@ -3,7 +3,7 @@ Does God exist?
 Let's start by saying that we don't know.
 
 Do I believe in God?
-This is a great question because it acknowledges that God's existence is much less a logical or objective truth, and much more a holistic and subjective one.
+This is a great question because it acknowledges that God's existence is much less a logical or objective truth, and much more a spiritual and subjective one.
 
 There seems to be an infinite richness, beauty, validity, importance and meaning to illogical thoughts.
 Things like imagination, fear, dreams, belief and love are not necessarily strictly logical or rational.
