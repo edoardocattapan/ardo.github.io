@@ -30,7 +30,7 @@ The will equals the faith. Controllables and uncontrollables mesh together.
 Forward and backward tendencies in time converge into making what is now present.
 In life, things are done by you, but also to you: therefore all things end up happening through you, and ultimately as you.
 
-**The coming of fate conduces to see why God exists.
+**The coming of fate conduces to see why God exists.**
 
 To hope, believe, have faith and know that fate is here: this takes perspective.
 Fate coming, destiny being unrolled under the present, the self actualizing, reality unfolding, things being consciously alive seemingly and evidently manifest a deeper, grander truth.
