@@ -6,8 +6,8 @@ This is a better question because it acknowledges that God's existence is much l
 There seems to be an infinite richness, beauty, validity, importance and meaning to illogical thoughts.
 Things like imagination, fear, dreams, belief and love are not necessarily strictly logical or rational.
 
-The least rational idea of all is faith - as opposed to doubt.
-We say that you "fall in love", or that you "take a leap of faith": the acts of falling or taking a leap into the unkown are fundamentally irrational and absolutely risky things to do.
+If doubt is the most extreme version of critical rationality, faith is the opposite.
+We say that you "fall in love", or that you "take a leap of faith": the very acts of falling or taking a leap into the unkown are fundamentally irrational and absolutely risky things to do.
 
 God's existence is not necessarily just a matter of objective reason: it is a matter of subjective conscious experience.
 Like love, faith is limitlessly powerful and it is irrational: there lies its power.
