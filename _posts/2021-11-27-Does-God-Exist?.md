@@ -22,12 +22,21 @@ This approach to one's worldview and subjective conscious experience shapes one'
 
 So, are you the person who holds onto logic and reason to attempt to explain something objectively, or are you the person who surrenders to the reality of irrational and uncontrollable forces shaping all things, thus *choosing to see* the unkown, to accept it and to inscribe everything into it?
 
+_
 
-The great human lives are generally lead by individuals who have faith in God.
+In one's course of life, we usually start with believing in magic, in the mysterious forces of the world, in an invisible sense of wonder, curiosity and awe towards the world, as children.
+Most people, growing up, then tend to rationalize their way out of religious dogma and tend to see a weak thesis around the spiritual dimension in their life, although some still like to cling on it as their mind and spirit are more drawn to it by helping to feel complete and purposeful.
+But even the non-religious and non-spiritual people, in the rare and most profound moments of their existence - ie. when faced with the loss of a loved one, a tragedy or in a contemplating moment in their final days - will wonder if, in fact, God was there all along the way.
 
-The reason for this I think is deep, abstract and simple: the individual will to live is as strong as the faith in a greater power to realize it.
+Whether it is the few really great scientists, artists or sportsmen, *the great human lives are generally lead by individuals who believe in God with strong faith*.
+For example: Albert Einstein, Muhammad Ali, Ayrton Senna.
+For these individuals and many like them, there is no need of a concrete proof of God's existence, because God's existence is the very sense of their existence.
+God, in other words, is necessarily to be **experienced**, and not to be investigated.
+
+The reason for this I think is deep, abstract and simple: *the individual will to live life is as strong as the faith in a greater power to realize that life*.
 The will equals the faith. Controllables and uncontrollables mesh together.
 Forward and backward tendencies in time converge into making what is now present.
+
 In life, things are done by you, but also to you: therefore all things end up happening through you, and ultimately as you.
 
 **The coming of fate conduces to see why God exists.**
