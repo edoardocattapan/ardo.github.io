@@ -20,8 +20,6 @@ This approach to one's worldview and subjective conscious experience shapes one'
 
 So, are you the person who holds onto logic and reason to attempt to explain something objectively, or are you the person who surrenders to the reality of irrational and uncontrollable forces shaping all things, thus *choosing to see* the unkown, to accept it and to inscribe everything into it?
 
-_
-
 In one's course of life, we usually start with believing in magic, in the mysterious forces of the world, in an invisible sense of wonder, curiosity and awe towards the world, as children.
 Most people, growing up, then tend to rationalize their way out of religious dogma and tend to see a weak thesis around the spiritual dimension in their life, although some still like to cling on it as their mind and spirit are more drawn to it by helping to feel complete and purposeful.
 But even the non-religious and non-spiritual people, in the rare and most profound moments of their existence - ie. when faced with the loss of a loved one, a tragedy or in a contemplating moment in their final days - will wonder if, in fact, God was there all along the way.
