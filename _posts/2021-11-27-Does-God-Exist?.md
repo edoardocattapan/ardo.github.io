@@ -49,10 +49,15 @@ So all the mind seeks to be doing is to make all things so that there is tension
 
 We are seeking answers to our questions, so there would better be a totalistic answer to our ultimate questions for our own existence to even mean anything at all.
 
-Whereas the Christian God is personified and thought to be transcending of spacetime and into human affairs, Spinoza's God is immanent in all things as all-things is what God is.
+Whereas the Christian God is personified and thought to be transcending of spacetime and into human affairs, Spinoza's God is immanent: present in and as all things, as all-things is what God is.
 
 God's presence is literally evident in front of me and I could find it in all things: it is not a person who could phyisically transcend spacetime to create it, oversee it, judge it or intervene on it.
+An interventionist God would in fact appear to be not plausible, as "*even God cannot change the past*" according to Agathon *(from Aristotle, Nicomachean Ethics)*.
 
+Through logic we can definitively conclude neither God's existence nor its absence.
+Through faith we can see something more.
+
+The idea of God exists.
 God is, therefore God exists.
 
-In fact, God being here, we are it.
+In fact: God being here, we are it.
