@@ -37,6 +37,8 @@ In life, things are done by you, but also to you: therefore all things end up ha
 
 **The coming of fate conduces to see why God exists.**
 
+**Most of all, God is the unknown.**
+
 To hope, believe, have faith and know that fate is here: this takes perspective.
 Fate coming, destiny being unrolled under the present, the self actualizing, reality unfolding, things being consciously alive seemingly and evidently manifest a deeper, grander truth.
 What that truth is is God.
