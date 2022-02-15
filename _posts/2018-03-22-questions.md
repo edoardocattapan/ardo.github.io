@@ -2,10 +2,13 @@ Questions are very important to us. They originate all progress of knowledge and
 We can only ask questions whose existence of the true answer we are conscious of, even if we do not know it yet.
 In an age where artificial intelligence is presumably getting more powerful to provide answers faster, cheaper and more accurately than us humans, our scope increasingly relies in asking better questions.
 
-Questions generate more questions, and we should strive to ask the better ones.
-If you imagine collective knowledge as a circular area that is expanding, and the perimeter that bridges knowledge with the unknown is a circular line made up of points, then those points are our questions whose true answer is yet unkown.
-That line draws the magnitude of our collective ignorance: as we keep asking questions and finding answers over time, the knowledge area expands and so does our line of ignorance.
-Our collective scope so appears to be quite paradoxical, doesn't it?
+**Questions generate more questions, and we should strive to ask the better ones.**
+
+If you imagine collective knowledge as a circular area that is expanding, and the perimeter that bridges knowledge with the unknown is a circular line (circumference) made up of points, then those points are our questions whose true answer is yet unkown.
+That line draws the magnitude of our collective ignorance: as we keep asking questions and finding answers over time, the knowledge area expands and so does our line of ignorance, growing together in a known constant relationship between circumference and area.
+
+The more we know, the more we don't know, constantly.
+Our collective scope then appears to be quite paradoxical, doesn't it?
 
 Here is an attempt to formulate a list of questions which respect three criteria:
 - the true verifiable answer remains yet unknown to humankind
