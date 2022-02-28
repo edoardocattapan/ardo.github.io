@@ -21,7 +21,7 @@ This approach to one's worldview and subjective conscious experience shapes one'
 So, are you the person who holds onto logic and reason to attempt to explain something objectively, or are you the person who surrenders to the reality of irrational and uncontrollable forces shaping all things, thus *choosing to see* the unkown, to accept it and to inscribe everything into it?
 
 In one's course of life, we usually start by believing in magic, in the mysterious forces of the world, in an invisible sense of wonder, curiosity and awe towards the world, as children.
-Growing up, most people then tend to rationalize their way out of all religious dogma and tend to see a weak thesis around the spiritual dimension of life, although some still like to cling onto it as their mind and spirit are more drawn to a feeling of completeness and purpose that is missing from the everyday preoccupations thier conscious experience is full of. Put another way, some people look for the Yin in their Yang.
+Growing up, most people then tend to rationalize their way out of all religious dogma and tend to see a weak thesis around the spiritual dimension of life, although some still like to cling onto it as their mind and spirit are more drawn to a feeling of completeness and purpose that is missing from the everyday preoccupations their conscious experience is full of. Put another way, some people look for the Yin in their Yang.
 But even the non-religious and non-spiritual people, in those rare and most profound moments of their existence - ie. when faced with tragedy as the loss of a loved one or in a contemplating moment on their final days - will wonder if, in fact, God was there all along the way.
 
 Whether it is the few really great scientists, artists or sportsmen, **the great human lives are generally lead by individuals who believe in God with strong faith**.
@@ -29,7 +29,7 @@ For example: Albert Einstein, Muhammad Ali, Ayrton Senna.
 For individuals like these, there is no need to search for a concrete proof of God's existence even if they constantly look for it, because ultimately God's existence is the very sense of their own existence.
 Necessarily therefore, God is to be *experienced* and not to be investigated.
 
-The reason for this I think is deep and simple: **the individual will to live life is as strong as the faith in a greater power to realize that life**.
+The reason for this I think is deep and simple: **the individual will to live is as strong as the faith in a greater power to realize it**.
 The will equals the faith. Controllables and uncontrollables mesh together.
 Forward and backward tendencies in time converge into making what is now present.
 
