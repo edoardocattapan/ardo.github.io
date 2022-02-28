@@ -67,10 +67,10 @@ God is, therefore God exists.
 Look inside, look outside.
 Look in your past, look in your future.
 Look down to human affairs, look up to your ambitions.
-Look now.
 It does not matter where you look - what matters is that you are looking.
+Look now.
 
-In fact: God being in our looking, we have found it.
+God being in our looking, we have found it.
 It's us.
 
-Keep looking.
+Now keep looking.
