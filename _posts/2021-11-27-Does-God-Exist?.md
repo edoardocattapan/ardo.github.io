@@ -71,5 +71,6 @@ Look now.
 It does not matter where you look - what matters is that you are looking.
 
 In fact: God being in our looking, we have found it.
+It's us.
 
 Keep looking.
