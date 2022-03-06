@@ -27,6 +27,7 @@ But even the non-religious and non-spiritual people, in those rare and most prof
 Whether it is the few really great scientists, artists or sportsmen, **the great human lives are generally lead by individuals who believe in God with strong faith**.
 For example: Albert Einstein, Muhammad Ali, Ayrton Senna.
 For individuals like these, there is no need to search for a concrete proof of God's existence even if they constantly look for it, because ultimately God's existence is the very sense of their own existence.
+God for these individuals is better understood as the ideal highest version of themselves - of their soul - and is addressed in private prayer, as it resides in the better parts of the spirit.
 Necessarily therefore, God is to be *experienced* and not to be investigated.
 
 The reason for this I think is deep and simple: **the individual will to live is as strong as the faith in a greater power to realize it**.
@@ -73,4 +74,4 @@ Look now.
 God being in our looking, we have found it.
 It's us.
 
-Now keep looking.
+Keep on looking.
