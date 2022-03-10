@@ -44,7 +44,7 @@ To hope, believe, have faith and know that fate is here: this takes perspective.
 Fate coming, destiny being unrolled under the present, the self actualizing, reality unfolding, things being consciously alive seemingly and evidently manifest a deeper, grander truth.
 What that truth is the confluent tension between will and fate, between control and surrender.
 You can look down and also you can look up. Look backwards and forward. Look out and look in.
-It is not found in a particular place, rather **God is found in the willful tension along the direction of faith into the unknown** - that tension is the sense in which God exists.
+It is not found in a particular place, rather **God is found in the willful tension along the direction of faith into the unknown** - that tension of ultimate trust is the way in which God exists in the counscious experience.
 
 The grander the scheme of ideas, the weaker the words are to grasp it, the more meaningful the idea.
 
