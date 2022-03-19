@@ -38,6 +38,8 @@ In life, things are done by you, but also to you: therefore all things end up ha
 
 **The coming of fate conduces to see why God exists.**
 
+**God is the sense of reconciliation that consciousness seeks to maintain between the known and the unknown.**
+
 **Most of all, God is the unknown.**
 
 To hope, believe, have faith and know that fate is here: this takes perspective.
