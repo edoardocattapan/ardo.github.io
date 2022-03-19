@@ -73,7 +73,7 @@ Look down to human affairs, look up to your ambitions.
 It does not matter where you look - what matters is that you are looking.
 Look now.
 
-God being in our looking, we have found it.
-It's us.
+God being in our looking, in our seeking a sense of reconciliation with the whole of our nature, we have found it.
+It's here, in this sense.
 
-Keep on looking.
+Never give this feeling up.
