@@ -1,4 +1,5 @@
-Let's start by saying that we don't really know.
+We could start by saying that we don't really know.
+But the difficulty to express this idea should not prevent us from knowing it.
 
 Do you believe in God?
 This is a better question because it acknowledges that God's existence is much less a logical or objective truth, and much more a spiritual and subjective conscious experience.
@@ -76,4 +77,4 @@ Look now.
 God being in our looking, in our seeking a sense of reconciliation with the whole of our nature, we have found it.
 It's here, in this sense.
 
-Never give this feeling up.
+As you feel connected, you are it.
