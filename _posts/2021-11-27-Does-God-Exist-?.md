@@ -77,4 +77,4 @@ Look now.
 God being in our looking, in our seeking a sense of reconciliation with the whole of our nature, we have found it.
 It's here, in this sense.
 
-As you feel connected, you are it.
+As you feel this sense, you are connecting to God - so much so that we are only to conclude one thing: it's you.
