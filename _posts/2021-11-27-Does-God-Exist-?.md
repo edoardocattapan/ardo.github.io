@@ -44,7 +44,7 @@ In life, things are done by you, but also to you: therefore all things end up ha
 **Most of all, God is the unknown.**
 
 Now, for practical purposes, I believe that if a key driver of living the human conscious experience is to overcome your fear of facing the risks of the unknown, then the belief that something "has your back" is fully functional in living a better life, because you are confident in a good outcome.
-In other words, if you truly believe that everything is going to be fine because "God", "the universe", "karma", destiny or the unknown is taking care of it, then that is an empowering and fulfilling belief in living the present moment with autotelic confidence and meaning.
+In other words, if you truly believe that everything is going to be fine because "God", "the universe", "karma", destiny or the unknown is taking care of it, then **God is an empowering and fulfilling belief in living the present moment with autotelic confidence and meaning**.
 
 To hope, believe, have faith and know that fate is here: this takes perspective.
 Fate coming, destiny being unrolled under the present, the self actualizing, reality unfolding, things being consciously alive seemingly and evidently manifest a deeper, grander truth.
@@ -81,3 +81,6 @@ God being in our looking, in our seeking a sense of reconciliation with the whol
 It's here, in this sense.
 
 As you feel this sense, you are connecting to God - so much so that we are only to conclude one thing: it's you.
+
+Now to answer the question that has been posed in the beginning: *Does God exist?*
+Do you believe?
