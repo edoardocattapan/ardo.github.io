@@ -43,6 +43,9 @@ In life, things are done by you, but also to you: therefore all things end up ha
 
 **Most of all, God is the unknown.**
 
+Now, for practical purposes, I believe that if a key driver of living the human conscious experience is to overcome your fear of facing the risks of the unknown, then the belief that something "has your back" is fully functional in living a better life, because you are confident in a good outcome.
+In other words, if you truly believe that everything is going to be fine because "God", "the universe", "karma", destiny or the unknown is taking care of it, then that is an empowering and fulfilling belief in living the present moment with autotelic confidence and meaning.
+
 To hope, believe, have faith and know that fate is here: this takes perspective.
 Fate coming, destiny being unrolled under the present, the self actualizing, reality unfolding, things being consciously alive seemingly and evidently manifest a deeper, grander truth.
 What that truth is the confluent tension between will and fate, between control and surrender.
