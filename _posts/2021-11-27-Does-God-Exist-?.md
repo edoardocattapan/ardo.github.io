@@ -82,5 +82,7 @@ It's here, in this sense.
 
 As you feel this sense, you are connecting to God - so much so that we are only to conclude one thing: it's you.
 
+Since you are the God, you are free to choose to see and have for yourself that deep sense of connection.
+
 Now to answer the question that has been posed in the beginning: *Does God exist?*
 Do you believe?
