@@ -63,6 +63,7 @@ We are seeking answers to our questions, so there would better be a totalistic a
 Whereas the Christian God is personified and thought to be transcending of spacetime and into human affairs, Spinoza's God is immanent: present in and as all things, as all-things is what God is.
 
 In my view, since the time when Christian values became empty - and the Christian God died forever - with Nietzsche, **now God is the higher-self: the better part of our personal souls.**
+**In a real sense, God is in the soul of oneself.** 
 **It corresponds to the misterious ways in which Fate, with life's situations, comes to us - for us, and through as, and as us - speaking back at our most felt and singled-out gratitudes and prayers.**
 
 God's presence is literally evident in front of me and I could find it in all things: it is not a person who could phyisically transcend spacetime to create it, oversee it, judge it or intervene on it.
