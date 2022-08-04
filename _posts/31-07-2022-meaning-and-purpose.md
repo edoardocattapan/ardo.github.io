@@ -130,4 +130,3 @@ How to become superhuman (3 metamorphosis):
   Let go of any blockers to flow activities.
   Take life not too seriously, experiment more!
   Try new ways of behaving in order to achieve the flow state.
-  
