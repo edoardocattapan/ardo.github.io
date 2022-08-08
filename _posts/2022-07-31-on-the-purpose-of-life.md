@@ -108,7 +108,8 @@ Moral values for a good future:
 - Consequentialism: moral choices don't come from following rules, but from considering the >2nd-order effects of our choices
 - Liberalism: it is not granted that liberalism always trumps authoritarianism in practice
 
-**Now my self-generated life's purpose becomes to make sure curiosity and imagination thrive by helping others ask *why* and *what if*.**
-That is why I want to advance the causes of open knowledge, education and individual freedom above all. To dignify my care for truth and love by practicing honesty, courage and kindness everyday. To inspire others with my example of undertaking philosophical enquiry and bold positive actions.
+**So long as I exist, my self-generated purpose in life becomes to make sure that curiosity and imagination thrive, by helping others ask *why* and *what if*.**
+That is why I want to serve humanity by advancing the causes of open knowledge, education and individual freedom above all. To dignify my care for truth and love by practicing honesty, courage and kindness everyday. To inspire others with my example of undertaking honest philosophical enquiry and brave positive actions.
 
-Why are you here? What if you were not?
+Why are you here?
+What if you were not?
