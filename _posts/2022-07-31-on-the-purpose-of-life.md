@@ -77,8 +77,7 @@ This means to be curious abouth the nature of the Universe, and therefore to aim
 For the curious individual, beyond asking the questions with honesty and rigour, having kids and using computers, the grander purpose is to be useful in enabling conscious human life to stay on the path of better understanding the nature of the Universe, the meaning of life and what questions to ask about the answer that is the Universe.
 To eventually understand the nature of the Universe - or to die trying - is the purpose of humanity as a whole.
 
-This means to decrease the likelihood of humanity ever going extinct, at least during this endeavour.
-More abstractly, to make sure curiosity and imagination thrive.
+This means to decrease the likelihood of humanity ever going extinct, at least during this endeavour, and to make sure curiosity and imagination thrive.
 **To exist and ask "*why?*" and "*what if?*"**
 
 For curiosity and imagination to thrive, one wants to make sure knowledge is accessible to as many people as possible, to see general education (arts, humanities and sciences), especially STEM subjects and especially the hard sciences and the scientific method, as a fundamentally good thing to be enabled and incentivized for current and future generations.
