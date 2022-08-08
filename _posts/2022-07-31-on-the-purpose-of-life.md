@@ -15,16 +15,15 @@ So the contribution to Life - be it conscious or not, human or not, "civilized" 
 And to do so silently and humbly - knowing that entitlement and virtue-signaling to play finite games of social status are really only misallocations of attention and merit.
 
 Be it given or self-generated, **the meaning of one's life is that it be lived with a meaning**, even if that is to search for it or to renounce it.
-Whatever topic that meaning might revolve around, all that is really essential is that **the conscious experience is pleasantly ordered** in a way that, at any moment and at any rate, non-controllable things are accepted and employed, while controllable information and resources are consciously chosen and allocated, to the achievement of one's chosen goals and mission of advancing a good cause.
+Whatever topic that meaning might revolve around, all that is really essential is that **the conscious experience is pleasantly ordered** in a way that, at any moment and at any rate, non-controllable things are accepted and employed, while controllable resources are consciously chosen and allocated, to the achievement of one's chosen goals and mission of advancing a good cause.
 
-The meaning can coincide with the purpose.
+The purpose can coincide with the meaning.
 This can then be defined essentially as to feel joy and fulfillment in existing.
 To live in a state of flow, removing blockers to achieving the flow state.
-To have inner moral integrity, intellectual honesty, the ability to learn and be self-reliant, to forgive, let go, never fixate on anything specific, be open, build, experiment, to accept, appreciate, to change perspectives and assumptions, to create, to develop, to play.
-To have fun in doing so.
-Like in the book *The Surrender Experiment* by Micahel Singer.
+To have inner moral integrity, intellectual honesty, the ability to learn and be self-reliant, and like in the book *The Surrender Experiment* by Micahel Singer, to forgive and let go, never fixate on anything specific, be open, build, experiment, to accept, appreciate, to change perspectives and assumptions, to create, to develop, to play. To have fun in doing so.
 
-To create.
+To create, as in Nietzsche's child metamorphosis.
+To play.
 To be a self-propelling wheel full of innocence, forgiveness and own rule-creation.
 To be confident, affirmative, creative, forever change and develop, be in flow.
 To not fixate on any specific identity (talk, dress, behave a certain way): you choose your own way continuously and can change decisions as you see fit.
