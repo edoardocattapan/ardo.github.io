@@ -28,13 +28,19 @@ To be a self-propelling wheel full of innocence, forgiveness and own rule-creati
 To be confident, affirmative, creative, forever change and develop, be in flow.
 To not fixate on any specific identity (talk, dress, behave a certain way): you choose your own way continuously and can change decisions as you see fit.
 To confront things as they are and stay a free spirit.
-To do Flow activities.
+To do flow activities.
 To let go of any blockers to flow activities.
 To take life not too seriously, to experiment more.
 To try new ways of behaving in order to achieve the flow state.
 To flow in a universe that is in a perpetual state of becoming.
 To have mastery over one's emotions.
 To take joy in simply existing and creating.
+
+To gradually take the focus outside of yourself and towards your surroundings.
+You can better see and know yourself if you get that the place to look is where your psyche lives: in the present moment more than behind your eyes.
+Not even darkness or nothingness can describe the feeling of closing your eyes and looking behind them: you can't.
+The knife cannot cut itself, but only what is immediately next to it.
+The self cannot be itself, but only be the present moment: the situationality of the opportunities in the immediate surroundings of space and time.
 
 As an example for defining one's purpose, I outline below insights on my own personal understanding of myself.
 
