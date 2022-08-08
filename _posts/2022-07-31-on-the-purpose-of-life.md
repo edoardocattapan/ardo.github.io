@@ -86,18 +86,18 @@ To appreciate the long-term perspective, understanding that a conscious individu
 **One chooses a *good* cause and works *hard* for advancing it.** *Hard*, because considerable force is required to get going and create order out of chaos while allocating resources and setting incentives in combating entropy and aging.
 
 Causes to advance:
-- liberal democracy (support RDI)
-- individual freedom & privacy (support Privacy International)
-- animal rights & welfare
-- open knowledge (support Wikimedia Foundation and Endowment funds)
+- Liberal democracy (support RDI)
+- Individual freedom & privacy (support Privacy International)
+- Open knowledge (support Wikimedia Foundation and Endowment funds)
 - STEM education (support Universities, research institutes, companies, individuals)
 - AI safety (support OpenAI)
-- Climate change
+- Climate change (influence policies)
 - Mental health (lower number of suicides)
-- Global health & pandemic prevention
+- Global health (access to drinkable water, lower hunger, lower poverty, increase education, pandemic prevention)
 - Longtermism (volunteer for Effective Altruism)
 - Space exploration (support SpaceX)
 - Pediatric research
+- Animal rights & welfare
 
 Moral values of today that can affect the next millennia:
 - Cosmopolitanism: being a global citizen standing for global unity and fraternity
