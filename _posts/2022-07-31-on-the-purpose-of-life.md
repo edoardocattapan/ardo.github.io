@@ -87,7 +87,7 @@ To appreciate the long-term perspective, understanding that a conscious individu
 
 **One chooses a *good* cause and works *hard* for advancing it.** *Hard*, because considerable force is required to get going and create order out of chaos while allocating resources and setting incentives in combating entropy and aging.
 
-Causes to advance:
+Good causes to advance:
 - Liberal direct democracy (support RDI)
 - Individual freedom & privacy (support Privacy International)
 - Open knowledge (support Wikimedia Foundation and Endowment funds)
@@ -101,7 +101,7 @@ Causes to advance:
 - Pediatric research
 - Animal rights & welfare
 
-Moral values of today that can affect the next millennia:
+Moral values for a good future:
 - Cosmopolitanism: being a global citizen standing for global unity and fraternity
 - Longtermism: species-long (1M years) view, caring about the inter-generational equity for future generations
 - Concern for non-human species: animal rights and welfare
@@ -109,6 +109,6 @@ Moral values of today that can affect the next millennia:
 - Liberalism: it is not granted that liberalism always trumps authoritarianism in practice
 
 **Now my self-generated life's purpose becomes to make sure curiosity and imagination thrive by helping others ask *why* and *what if*.**
-To advance the causes of open knowledge, education, individual freedom and privacy. To care for truth and love by practicing honesty, courage and kindness myself. To inspire others with my example of undertaking philosophical enquiry and bold positive actions.
+That is why I want to advance the causes of open knowledge, education and individual freedom above all. To dignify my care for truth and love by practicing honesty, courage and kindness everyday. To inspire others with my example of undertaking philosophical enquiry and bold positive actions.
 
 What is your purpose?
