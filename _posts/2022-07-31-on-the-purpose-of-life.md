@@ -80,11 +80,10 @@ To eventually understand the nature of the Universe - or to die trying - is the 
 This means to decrease the likelihood of humanity ever going extinct, at least during this endeavour, and to make sure curiosity and imagination thrive.
 **To exist and ask "*why?*" and "*what if?*"**
 
-For curiosity and imagination to thrive, one wants to make sure knowledge is accessible to as many people as possible, to see general education (arts, humanities and sciences), especially STEM subjects and especially the hard sciences and the scientific method, as a fundamentally good thing to be enabled and incentivized for current and future generations.
-To appreciate the long-term perspective, understanding that a conscious individual's life is only one very small and precious part of Life as a whole across space and time.
+For curiosity and imagination to thrive, one wants to make sure knowledge is accessible to as many people as possible, to see general education (arts, humanities and sciences), practical STEM subjects, the hard sciences, logic and the scientific method, as well as creative imagination and philosophy, as a fundamentally good thing to be enabled and incentivized for current and future generations.
+To appreciate the long-term perspective, understanding that a conscious individual's life is only one very small and precious part of Life as a whole, across space and time.
 
-In this reasonably logical thread of deductions, one would conclude that there are practical things to do now for any individual that give him meaning and purpose towards a greater good.
-These revolve around choosing a good cause and working hard for advancing it. *Hard* because considerable force is required to create order out of chaos in combating entropy and aging.
+**One chooses a *good* cause and works *hard* for advancing it.** *Hard*, because considerable force is required to get going and create order out of chaos while allocating resources and setting incentives in combating entropy and aging.
 
 Causes to advance:
 - liberal democracy (support RDI)
