@@ -112,4 +112,3 @@ Moral values for a good future:
 That is why I want to advance the causes of open knowledge, education and individual freedom above all. To dignify my care for truth and love by practicing honesty, courage and kindness everyday. To inspire others with my example of undertaking philosophical enquiry and bold positive actions.
 
 Why are you here? What if you were not?
-What is your purpose?
