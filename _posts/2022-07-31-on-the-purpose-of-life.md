@@ -67,7 +67,7 @@ I would then fight my inner evils: falsehood and hate.
 Falsehood includes social drama, hypocrisy, superficiality, lies, white lies (of omission), fakeness.
 Hate includes being too self-centered, rude, and feeling like a pessimistic, bored, passive victim.
 
-**Therefore my life's purpose would be to intentionally help others be more honest, have courage and be kind by speaking and writing publicly, winning sailing championships and building bold entrepreneurial ventures.**
+**Therefore my life's purpose would be to intentionally help others care more about truth and love through honesty, courage and kindness by speaking and writing my abstract thoughts, winning sailing championships and building bold entrepreneurial ventures.**
 
 
 But this whole endeavor of finding the purpose or the meaning of life, or to know how to go about creating it, really seems to reside on the airy grounds where the big difficult and possibly impossible-to-answer-correctly questions - like paradoxes - seem to reside.
