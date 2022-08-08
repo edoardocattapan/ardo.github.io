@@ -1,6 +1,7 @@
 What is the purpose of life?
 
 Trying to define one's own life purpose is like trying to find one's destiny: they are a-posteriori retrospective summatory perspectives on what one has been doing with the present moment all along.
+You can only connect the dots looking backwards, and you can only live in the present moment.
 
 So, as it is lived, the purpose of life should be the purpose of the present moment - to make the most out of it, to live in flow: with awareness, enjoyment, in a way that is useful to the fulfillment of some greater goal, serving the present things that we control with virtue, to develop yourself and add value to others, to do what you love and love what you do.
 
@@ -67,8 +68,9 @@ I would then fight my inner evils: falsehood and hate.
 Falsehood includes social drama, hypocrisy, superficiality, lies, white lies (of omission), fakeness.
 Hate includes being too self-centered, rude, and feeling like a pessimistic, bored, passive victim.
 
-**Therefore my life's purpose would be to intentionally help others care more about truth and love through honesty, courage and kindness by speaking and writing my abstract thoughts, winning sailing championships and building bold entrepreneurial ventures.**
+**Therefore my life's purpose would be to intentionally help others care more about truth and love through practicing honesty, courage and kindness by speaking and writing my abstract thoughts, winning sailing championships and building bold entrepreneurial ventures.**
 
+One or a few *good causes* can then be chosen to align this purpose towards something specific to work for and improve.
 
 But this whole endeavor of finding the purpose or the meaning of life, or to know how to go about creating it, really seems to reside on the airy grounds where the big difficult and possibly impossible-to-answer-correctly questions - like paradoxes - seem to reside.
 
@@ -86,7 +88,7 @@ To appreciate the long-term perspective, understanding that a conscious individu
 **One chooses a *good* cause and works *hard* for advancing it.** *Hard*, because considerable force is required to get going and create order out of chaos while allocating resources and setting incentives in combating entropy and aging.
 
 Causes to advance:
-- Liberal democracy (support RDI)
+- Liberal direct democracy (support RDI)
 - Individual freedom & privacy (support Privacy International)
 - Open knowledge (support Wikimedia Foundation and Endowment funds)
 - STEM education (support Universities, research institutes, companies, individuals)
@@ -105,3 +107,8 @@ Moral values of today that can affect the next millennia:
 - Concern for non-human species: animal rights and welfare
 - Consequentialism: moral choices don't come from following rules, but from considering the >2nd-order effects of our choices
 - Liberalism: it is not granted that liberalism always trumps authoritarianism in practice
+
+**Now my self-generated life's purpose becomes to make sure curiosity and imagination thrive by helping others ask *why* and *what if*.**
+To advance the causes of open knowledge, education, individual freedom and privacy. To care for truth and love by practicing honesty, courage and kindness myself. To inspire others with my example of undertaking philosophical enquiry and bold positive actions.
+
+What is your purpose?
