@@ -37,13 +37,15 @@ To flow in a universe that is in a perpetual state of becoming.
 To have mastery over one's emotions.
 To take joy in simply existing and creating.
 
-To gradually take the focus outside of yourself and towards your surroundings.
+Flow requires to gradually take the focus outside of yourself and towards your surroundings.
 You can better see and know yourself if you get that the place to look is where your psyche lives: in the present moment more than behind your eyes.
 Not even darkness or nothingness can describe the feeling of closing your eyes and looking behind them: you can't.
 The knife cannot cut itself, but only what is immediately next to it.
 The self cannot be itself, but only be the present moment: the situationality of the opportunities in the immediate surroundings of space and time.
 
-As an example for defining one's purpose, I outline below insights on my own personal understanding of myself.
+Thus to know yourself, to use your talents, passions, values, goals to serve others.
+
+If this is the way, as an example for defining one's purpose, I try here firsthand to outline some insights from my own personal understanding of myself.
 
 I love sailing, investing and learning because I am open, smart and curious.
 I am talented at thinking abstractly and analytically and at focusing.
