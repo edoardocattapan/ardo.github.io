@@ -40,8 +40,9 @@ To take joy in simply existing and creating.
 Flow requires to gradually take the focus outside of yourself and towards your surroundings.
 You can better see and know yourself if you get that the place to look is where your psyche lives: in the present moment more than behind your eyes.
 Not even darkness or nothingness can describe the feeling of closing your eyes and looking behind them: you can't.
-The knife cannot cut itself, but only what is immediately next to it.
-The self cannot be itself, but only be the present moment: the situationality of the opportunities in the immediate surroundings of space and time.
+A knife cannot cut itself, it can only what is immediately next to it.
+The self cannot see itself, but only see the present moment: the situationality of the opportunities in the immediate surroundings of space and time.
+So if you spend much time and focused effort in trying to know yourself, you might accumulate a lot of insights on who you were until today, but if you are not doing anything else than self-introspection, your self gets stale and at some point you will meet your own gaze into it.
 
 Thus to know yourself, to use your talents, passions, values, goals to serve others.
 
