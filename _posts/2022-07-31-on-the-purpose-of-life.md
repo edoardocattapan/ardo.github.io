@@ -112,7 +112,7 @@ Moral values for a good future:
 - Liberalism: it is not granted that liberalism always trumps authoritarianism in practice
 
 **So long as I exist, my self-generated purpose in life becomes to make sure that, in humanity's search for good answers, curiosity and imagination thrive, by helping others ask *why?* and *what if?*.**
-That is why I want to serve humanity by advancing the causes of open knowledge, free education and individual freedom above all. In particular, I support Wikipedia, philosophy and STEM subjects, free markets, direct democracy, individual privacy. My practicing the values of honesty, courage and kindness everyday can dignify my care for truth and love. Ultimately, my undertakings of honest philosophical enquiry and of brave positive actions can inspire others on the endeavour.
+That is why I want to serve humanity by advancing the causes of open knowledge, free education and individual freedom above all. In particular, I support Wikipedia, philosophy and STEM subjects, free markets, direct democracy, individual privacy. My daily practicing of the values of honesty, courage and kindness can dignify my care for truth and love. Ultimately, my undertakings of honest philosophical enquiry and of brave positive actions can inspire others on the endeavour.
 
 Why are you here?
 What if you were not?
