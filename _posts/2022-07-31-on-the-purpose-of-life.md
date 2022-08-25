@@ -3,7 +3,7 @@ What is the purpose of life?
 Trying to define one's own life purpose is like trying to find one's destiny: they are a-posteriori retrospective summatory perspectives on what one has been doing with the present moment all along.
 You can only connect the dots looking backwards, and you can only live in the present moment.
 
-So, as it is lived, the purpose of life should be the purpose of the present moment - to make the most out of it, to live in flow: with awareness, enjoyment, in a way that is useful to the fulfillment of some greater goal, serving the present things that we control with virtue, to develop yourself and add value to others, to do what you love and love what you do.
+So, as it is lived, the purpose of life should be the purpose of the present moment - to make the most out of it, to live in flow: with awareness, enjoyment, in a way that is useful to the fulfillment of some greater goal, serving the present things that we control with virtue, to develop yourself and add value to others, to do what you love and love what you do, to be in a state of perfect knowledge of the reality of your situation, perfect efficaciousness and perfect economy of energy of thought, emotion and action (*wu wei*).
 
 To live in a state of *flow* is what is important from a perspective of an individual's psychological mechanics.
 **The purpose of the present moment is be to be in flow** - as defined by Mihaly Csikszentmihalyi.
