@@ -3,9 +3,9 @@ What is the purpose of life?
 Trying to define one's own life purpose is like trying to find one's destiny: they are a-posteriori retrospective summatory perspectives on what one has been doing with the present moment all along.
 You can only connect the dots looking backwards, and you can only live in the present moment.
 
-So, as it is lived, the purpose of life should be the purpose of the present moment - to make the most out of it, to live in flow: with awareness, enjoyment, in a way that is useful to the fulfillment of some greater goal, serving the present things that we control with virtue, to develop yourself and add value to others, to do what you love and love what you do, and finally to be in a state of perfect knowledge of the reality of your situation, perfect efficaciousness and perfect economy of energy of thought, emotion and action (*wu wei*).
+So, as it is lived, the purpose of life should be the purpose of the present moment - to make the most out of it, to live in flow: with awareness, enjoyment, ordering the information that enters your consciousness with gratitude, discerning what is within and without your control, matching your challenges to your skills and balancing them between anxiety and boredom in a way that is useful to the fulfillment of some clearly defined greater goal, serving the present moment by carrying yourself with virtue, developing yourself and adding value to others, doing what you love and loving what you do, being in a state of perfect knowledge of the reality of your situation, perfect efficaciousness and perfect economy of energy of thought, emotion and action (*wu wei*).
 
-To live in a state of *flow* is what is important from a perspective of an individual's psychological mechanics.
+To live in a state of *flow* is what is important from a perspective of an individual's psychological mechanics or conscious experience.
 **The purpose of the present moment is be to be in flow** - as defined by Mihaly Csikszentmihalyi.
 
 For a moment - or a life - of flow to be meaningful, there needs to be the fulfillment towards a purpose that is greater than one's life: to help advance a good cause that is mutually believed in by the individual and his people.
