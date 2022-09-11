@@ -1,6 +1,8 @@
 What is the purpose of life?
 
-Trying to define one's own life purpose is like trying to find one's destiny: they are a-posteriori retrospective summatory perspectives on what one has been doing with the present moment all along.
+I have here previously tried to arrive at a conclusion: *"the purpose of life, then, is to be an artist: to create pockets of harmonious order for other people to enjoy. And life itself is the opportunity to make our greatest work of art: its meaning is to show how we choose to bear the necessary suffering."*
+
+But perhaps trying to define one's own life purpose is like trying to find one's destiny: they are a-posteriori retrospective summatory perspectives on what one has been doing with the present moment all along.
 You can only connect the dots looking backwards, and you can only live in the present moment.
 
 So, as it is lived, the purpose of life should be the purpose of the present moment - to make the most out of it, to live in flow: with awareness, enjoyment, ordering the information that enters your consciousness with gratitude, discerning what is within and without your control, engaging in activities that match your challenges to your skills and balance them between anxiety and boredom in a way that is useful to the fulfillment of some clearly defined greater goal, serving the present moment by carrying yourself with virtue, developing yourself and adding value to others, doing what you love and loving what you do, being in a state of perfect knowledge of the reality of your situation, perfect efficaciousness and perfect economy of energy of thought, emotion and action (*wu wei*).
@@ -123,3 +125,8 @@ How one does these things is how one does anything: striving to practice the val
 
 Now, why are you here?
 What if you were never born?
+
+Of course, the paradoxic and truest answer to the question *"why?"* is the answer *"because."*
+And the truest answer to *"what if?"* is *"yes and..."*.
+Curiosity and imagination are limitless and fundamental.
+That is why they seem to be fundamental pursuits to be actively and purposefully enacted in the natural way of Life.
