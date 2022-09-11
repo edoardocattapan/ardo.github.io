@@ -123,10 +123,11 @@ I also support direct democracy and individual privacy.
 
 How one does these things is how one does anything: striving to practice the values of honesty, courage and kindness dignifies the care for truth and love. Ultimately, my undertakings of honest philosophical enquiry and of brave and kind actions can inspire others on our common endeavour.
 
-Now, why are you here?
-What if you were never born?
-
 Of course, the paradoxic and truest answer to the question *"why?"* is the answer *"because."*
-And the truest answer to *"what if?"* is *"yes and..."*.
+And the truest ultimate answer to *"what if?"* is *"yes and..."*.
 Curiosity and imagination are limitless and fundamental.
 That is why they seem to be fundamental pursuits to be actively and purposefully enacted in the natural way of Life.
+
+Now, why are you here?
+
+What if you were never born?
