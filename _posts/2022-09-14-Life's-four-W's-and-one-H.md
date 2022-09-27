@@ -10,8 +10,8 @@ A clear answering of these questions will usually frame a story, real or made up
 By framing the story of Life, this framework can clarify the foundational values of a worldview.
 
 ***Who* is you**.
-You cannot escape from the identity of your conscience.
-Even when referring to someone else, *you* do the referring, with your conscience.
+You cannot escape from the identity of your consciousness.
+Even when referring to someone else, *you* do the referring, with your consciousness.
 Even when being in any sort of unconscious state, the experimenter of any content is a more abstract and broad (even infinite) *you*.
 
 ***When* is now.**
