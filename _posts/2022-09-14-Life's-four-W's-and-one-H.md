@@ -1,4 +1,4 @@
-Five questions form a renowned storytelling framework - the four W's and one H:
+Five questions form a storytelling framework - the four W's and one H:
 - Who?
 - When?
 - What?
