@@ -44,8 +44,9 @@ This requires: **Self-awareness, mindfulness, honesty, kindness, courage.**
 
 The universe is you, you are here now: Life's game as a conscious experimenting experiencer is about honesty, kindness and courage.
 
-Do: Know yourself, be here now, tell the truth, be kind, be brave.
-Do not: Don't estraniate people or things, don't be lost in thoughts, don't lie, don't be evil, don't panic.
+Dos: Know yourself, be here now, tell the truth, be kind, be brave.
+
+Don'ts: Don't estraniate people or things, don't be lost in thoughts, don't lie, don't be evil, don't panic.
 
 I am here now, I face my fears with realness and grace, I tell the truth with kind words.
 
