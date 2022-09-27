@@ -1,4 +1,4 @@
-Five questions form a journalistic framework - the four W's and one H:
+Five questions form a renowned storytelling framework - the four W's and one H:
 - Who?
 - When?
 - What?
@@ -7,7 +7,7 @@ Five questions form a journalistic framework - the four W's and one H:
 
 A clear answering of these questions will usually frame a story, real or made up.
 
-By framing the story of Life, this can clarify the foundational values of a worldview.
+By framing the story of Life, this framework can clarify the foundational values of a worldview.
 
 ***Who* is you**.
 You cannot escape from your the identity of your conscience.
@@ -44,5 +44,9 @@ This requires: **Self-awareness, mindfulness, honesty, kindness, courage.**
 
 The universe is you, you are here now: Life's game as a conscious experimenting experiencer is about honesty, kindness and courage.
 
-**Dos: Know yourself, be here now, tell the truth, be kind, be brave.**
-Don'ts: Don't estraniate people or things, don't be lost in thoughts, don't lie, don't be evil, don't panic.
+Do: Know yourself, be here now, tell the truth, be kind, be brave.
+Do not: Don't estraniate people or things, don't be lost in thoughts, don't lie, don't be evil, don't panic.
+
+I am here now, I face my fears with realness and grace, I tell the truth with kind words.
+
+Life is a gift to me. I am a gift to Life.
