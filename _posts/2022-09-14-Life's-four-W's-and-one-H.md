@@ -12,13 +12,14 @@ By framing the story of Life, this framework can clarify the foundational values
 ***Who* is you**.
 You cannot escape from the identity of your consciousness.
 Even when referring to someone else, *you* do the referring in your consciousness.
-Even when being in any sort of unconscious state, the experimenter of any content is a more abstract and broad (even infinite) *you*.
+Even when being in any sort of unconscious state, the experimenter of any content is a more abstract and broader (even infinite) *you*.
 
 ***When* is now.**
 You cannot escape from the present moment.
 Even the past is a memory arising now.
 Even the future is a thought arising in the present moment about some imaginary state of things that is different (or more entropic) than the ones already lived.
-The flow of time being a persistent illusion, the conscious experience, that is Life, is *now*.
+The flow of time being a persistent illusion, the conscious experience, as well as the unconscious experience, is *now*.
+In fact, *now* is so inescapably present that the definition of time becomes void: outside of *now* there really is nothing.
 
 ***What* is the truth**.
 The contents of this story are always what is true to be true or true to be false.
@@ -42,7 +43,7 @@ A life conduct would be to always tell the truth with kind, compassionate, warm 
 
 This requires: **Self-awareness, mindfulness, honesty, kindness, courage.**
 
-The universe is you, you are here now: Life's game as a conscious experimenting experiencer is about honesty, kindness and courage.
+The universe is you, you are here now: Life as an a-temporal one-player game, played by the conscious experimenting experiencer who allows and makes things happen at the same time, is about honesty, kindness and courage.
 
 Dos: Know yourself, be here now, tell the truth, be kind, be brave.
 
