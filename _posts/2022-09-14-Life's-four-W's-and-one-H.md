@@ -39,6 +39,7 @@ With courage you take risks: if you fail you can learn by gaining wisdom from su
 Among all the virtues, Courage is the most important because it enables all the others.
 
 The only forces of consciousness more fundamental than these are curiosity and imagination.
+It is so because the questions of "*why*" and "*what if*" start the infinite meta-framings of consciousness, thereby running the whole show from the backstage.
 
 A life conduct would be to always seek and report the truth with kind, compassionate, warm regards towards people and things because one bravely fights his fears.
 
