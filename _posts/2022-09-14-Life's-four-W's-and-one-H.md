@@ -38,10 +38,10 @@ Ultimately, the reason for all this story, for Life and the Universe, for **bein
 With courage you take risks: if you fail you can learn by gaining wisdom from suffering, if you succeed you gain meaning, purpose and fulfillment.
 Among all the virtues, Courage is the most important because it enables all the others.
 
-The only forces of consciousness more fundamental than these are curiosity and imagination.
-It is so because the questions of "*why*" and "*what if*" start the infinite meta-framings of consciousness, thereby running the whole show from the backstage.
+Intellectually, courage drives the fundamental forces of curiosity and imagination.
+These are foundational to running the show of reality, as the questions of "*why*" and "*what if*" open infinite doors, show you the true and the new, and start the infinite meta-framings that make up consciousness.
 
-A life conduct would be to always seek and report the truth with kind, compassionate, warm regards towards people and things because one bravely fights his fears.
+A coherent life conduct would be to always seek and report the truth with kind, compassionate, warm regards towards people and things because one bravely fights his fears.
 
 This requires: **Self-awareness, mindfulness, honesty, kindness, courage.**
 
