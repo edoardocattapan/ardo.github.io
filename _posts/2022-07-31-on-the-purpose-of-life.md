@@ -24,7 +24,7 @@ The purpose can coincide with the meaning.
 This can then be defined essentially as to feel joy and fulfillment in existing.
 **To gift life back to Life through your actions and thoughts and feelings.**
 To live in a state of flow, removing blockers to achieving the flow state.
-To have inner moral integrity, intellectual honesty, the ability to learn and be self-reliant, and like in the book *The Surrender Experiment* by Michael Singer, to forgive and let go, never fixate on anything specific, be open, build, experiment, to accept, appreciate, to change perspectives and assumptions, to create, to develop, to play. To have fun in doing so.
+To have inner moral integrity, intellectual honesty, the ability to learn and be self-reliant, and like in the book *The Surrender Experiment* by Michael Singer, to dissolve the "*ego*" by flowing with Life as Life itself, to forgive and let go, never fixate on anything specific, be open, build, experiment, to accept, appreciate, to change perspectives and assumptions, to create, to develop, to play. To have fun in doing so.
 
 To create, as in Nietzsche's child metamorphosis.
 To play.
