@@ -13,13 +13,14 @@ Take a breath. Think simple.
 
 Think binary.
 Things are black or white.
-Every shade of grey is a peculiar combination of black and white pixels.
-Every shade of grey is an optical illusion of holistic perception.
+If you look close enough, every shade of grey is a peculiar combination of black and white pixels.
+Every shade of grey - every complexity - is an optical illusion of holistic perception.
+There does not need to be confusion, when complexity is debunked into simplicity.
 
 Think of what you want to do.
 Do it.
 
-Fuck optimism and pessimism, fuck doubt, fuck hope, fuck that confusion.
+Fuck optimism and pessimism, fuck doubt, fuck hope, fuck that complex confusion.
 
 Just do it.
 
