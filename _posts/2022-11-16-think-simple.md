@@ -5,7 +5,8 @@ where to follow through and where to give up, how to be creative, how to be happ
 A lot of confusion whenever there is doubt and whenever there is hope.
 Intellectual and emotional complexities driven by running scenarios of more or less optimism and pessimism around probable outcomes.
 A lot of coulours, colour combinations, shades, lights, juxtapositions, framings.
-This confusion arises when intelligence is at play.
+A lot of fear.
+This confusion arises when too much emotion and intelligence are at play.
 This confusion causes various forms of psychological suffering.
 
 Take a breath. Think simple.
@@ -21,3 +22,9 @@ Do it.
 Fuck optimism and pessimism, fuck doubt, fuck hope, fuck that confusion.
 
 Just do it.
+
+If it's a complicated thing that you want to do, make it simple.
+Ask what does the ideal risult look like, and what are the few most fundamental parts needed and sufficient to make it.
+Find a way or make a way to do it.
+
+Bye.
