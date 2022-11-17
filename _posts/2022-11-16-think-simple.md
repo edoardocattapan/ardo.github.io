@@ -4,6 +4,7 @@ There is a lot of confusion about being human, about how to live, what choices t
 where to follow through and where to give up, how to be creative, how to be happy, how to be sad, how to be true to one's self, how to be honest, how to be kind, how to have courage.
 A lot of confusion whenever there is doubt and whenever there is hope.
 Intellectual and emotional complexities driven by running scenarios of more or less optimism and pessimism around probable outcomes.
+Meta-things distract from things.
 A lot of coulours, shades, lights, juxtapositions, framings.
 A lot of fear.
 This confusion arises when too much intelligence and emotion are at play.
