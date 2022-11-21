@@ -12,13 +12,14 @@ This confusion causes various forms of psychological suffering.
 
 Take a breath. Think simple.
 
-Think binary.
-Things are black or white.
-If you look close enough, every shade of grey is a peculiar combination of black and white pixels.
+Think binary also.
+Things at some fundamental level might just be either black or white.
+If you look close enough, every shade of grey is a just peculiar combination of black and white "pixels".
 Every shade of grey - every complexity - is an optical illusion of holistic perception.
 There does not need to be confusion, when complexity is debunked into simplicity.
 
 Think of what you want to do.
+Choose how deep to ponder the question of why.
 Do it.
 
 Fuck optimism and pessimism, fuck doubt, fuck hope, fuck that complex confusion.
