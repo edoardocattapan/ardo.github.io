@@ -129,11 +129,11 @@ And the truest ultimate answer to *"what if?"* is *"yes and..."*.
 **Curiosity and imagination are limitless and fundamental.**
 That is why they seem to be fundamental pursuits to be actively and purposefully enacted in the natural way of Life.
 
-Finally, realizing that **lasting happiness happens when the meaning of daily actions is to fulfill a bigger purpose**, it appears that one is to know what matters most to him and the world, to know where he is going, and to take daily doses of actions in alignment with these.
+Finally, realizing that **lasting happiness happens when the meaning of daily actions is to fulfill a bigger purpose**, it would follow that one is to know what matters most to him and to the world, to know where he is going, and to take daily doses of actions in alignment with these.
 
 Life is a series of connected choices: who I am, what I believe, what I do.
 In other words, my purpose determines who I am, my values determine what I believe, my actions determine what I do.
-My purpose is a fluid - kind of "emergent" - confluence which results from my identity, values and actions.
+My purpose is a dynamic - kind of "emergent" - confluence which results from my living my identity, values and actions.
 
 Therefore, we can bring the questions of purpose, meaning and happiness into a converging question:
 **What is the single most meaningful thing for me and for the world that I can do in my life, such that by doing it everything else becomes easier or unnecessary?**
@@ -144,7 +144,7 @@ What is most important to me?
 What can I do?
 
 For me, these questions lead to my answer:
-**To be a great example of leading Life with Honesty, Courage and Kindness by doing acts aligned with this.""
+**To be the greatest example of leading Life with Honesty, Courage and Kindness by doing acts aligned with this.**
 
 Now, why are you here in the world?
 What if you were never born?
