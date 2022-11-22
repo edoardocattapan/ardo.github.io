@@ -1,3 +1,5 @@
+Let's try a thought experiment just for curiosity, not to maintain any thesis.
+
 Five questions form a storytelling framework - the four W's and one H:
 - Who?
 - When?
