@@ -140,6 +140,7 @@ Therefore, we can bring the questions of purpose, meaning and happiness into a c
 
 What is most meaningful to me?
 What is most meaningful to my family and community, to society, to civilization, to humanity, to the Universe?
+What change do I want to see in the world?
 What is most important to me?
 What can I do?
 
