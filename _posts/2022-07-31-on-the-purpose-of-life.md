@@ -146,6 +146,5 @@ What can I do?
 For me, these questions lead to my answer:
 **To be a great example of leading Life with Honesty, Courage and Kindness by doing acts aligned with this.""
 
-Now, why are you here?
-
+Now, why are you here in the world?
 What if you were never born?
