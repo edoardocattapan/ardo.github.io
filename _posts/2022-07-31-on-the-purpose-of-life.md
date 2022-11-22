@@ -126,7 +126,7 @@ How one does these things is how one does anything: striving to practice the val
 
 Of course, the paradoxic and truest answer to the question *"why?"* is the answer *"because."*
 And the truest ultimate answer to *"what if?"* is *"yes and..."*.
-Curiosity and imagination are limitless and fundamental.
+**Curiosity and imagination are limitless and fundamental.**
 That is why they seem to be fundamental pursuits to be actively and purposefully enacted in the natural way of Life.
 
 Finally, realizing that **lasting happiness happens when the meaning of daily actions is to fulfill a bigger purpose**, it appears that one is to know what matters most to him and the world, to know where he is going, and to take daily doses of actions in alignment with these.
