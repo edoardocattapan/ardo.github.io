@@ -144,7 +144,7 @@ What is most important to me?
 What can I do?
 
 For me, these questions lead to my answer:
-**To be the greatest example of leading Life with Honesty, Courage and Kindness by doing acts aligned with this.**
+**To be a good person by exemplarily taking daily and historical acts of honesty, courage and kindness.**
 
 Now, why are you here in the world?
 What if you were never born?
