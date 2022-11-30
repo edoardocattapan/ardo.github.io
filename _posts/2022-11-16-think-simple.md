@@ -27,7 +27,7 @@ Fuck optimism and pessimism, fuck doubt, fuck hope, fuck that complex confusion.
 Just do it.
 
 If it's a complicated thing that you want to do, make it simple.
-Ask what does the ideal risult look like, and what are the few most fundamental parts needed and sufficient to make it.
+Ask what does the ideal result look like, and what are the few most fundamental parts needed and sufficient to make it.
 Find a way or make a way to do it.
 
 Bye.
