@@ -54,16 +54,19 @@ The art of beauty and the content of truth is what you have inside.
 You are not really the author creating these things, you are more like the curator and editor.
 Be true to yourself, allow the truth to come out, express it gracefully, if you need to edit for sharing with others, keep the truth raw and only infuse your delivery style with kindness.
 
-Instead of trying to achieve some arbitrary external goal that may be copied from others and not necessarily genuinely personal, listen to your intrinsically-motivated personal authenticity and just let it out to shine gracefully.
+Instead of trying hard to achieve some arbitrary external goal that may be copied from others and not necessarily genuinely personal, listen to your intrinsically-motivated personal authenticity and just let it out to shine gracefully.
 Once you have grown up from trying some different things, having come to know your evolving self, see how some things are fundamental to who you are.
 Discover these things, see them, listen to them, feel them, accept them, love them.
 It's who you are. It's your self. It's your truth.
 
-Don't try to be something you are not, don't try to do things that are not true expressions of you. Don't lie to yourself.
+**Try, try hard, but only up to about 85%, not 100%.
+Don't force, don't compel through pressure what does not naturally do so by necessity.**
+
+Don't try hard to be something you are not, don't try hard to do things that are not true expressions of you. Don't lie to yourself.
 Rather, just do the things that want to come out of you. Let them come out.
 **Life happens through you, as you.**
 This means to know yourself and be yourself. This is having a child's mind. This is the most natural thing in the world. This is the way of Nature.
 
-Don't lie. Don't panic. Don't be evil. Don't try.
+Don't lie. Don't panic. Don't be evil. Don't force.
 
 Be honest, be brave, be kind, be yourself.
