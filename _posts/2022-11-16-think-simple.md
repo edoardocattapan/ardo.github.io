@@ -5,7 +5,7 @@ where to follow through and where to give up, how to be creative, how to be happ
 A lot of confusion whenever there is doubt and whenever there is hope.
 Intellectual and emotional complexities driven by running scenarios of more or less optimism and pessimism around probable outcomes.
 Meta-things distract from things.
-A lot of colors, shades, lights, juxtapositions, framings.
+A lot of colours, shades, lights, juxtapositions, framings.
 A lot of fear.
 This confusion arises or just when intelligence and emotion are at play in misalignment or in excess.
 This confusion causes various forms of psychological suffering.
@@ -14,7 +14,9 @@ Breathe. Think simple.
 
 Think binary also.
 Things at some fundamental level might just be either black or white.
-If you look close enough, every shade of grey is a just peculiar combination of black and white "pixels".
+If you look at an image close enough, every shade of grey is a just peculiar combination of black and white "pixels".
+Every colour is a combination of two or three primary colours.
+Even the "Universal Library" or reality itself are effectively an emerging interplay of a straight line and a circle.
 Every shade of grey - every complexity - is an optical illusion of holistic perception.
 There does not need to be confusion, when complexity is debunked into simplicity.
 
