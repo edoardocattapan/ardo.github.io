@@ -5,7 +5,7 @@ where to follow through and where to give up, how to be creative, how to be happ
 A lot of confusion whenever there is doubt and whenever there is hope.
 Intellectual and emotional complexities driven by running scenarios of more or less optimism and pessimism around probable outcomes.
 Meta-things distract from things.
-A lot of coulours, shades, lights, juxtapositions, framings.
+A lot of colors, shades, lights, juxtapositions, framings.
 A lot of fear.
 This confusion arises when too much intelligence and emotion are at play.
 This confusion causes various forms of psychological suffering.
