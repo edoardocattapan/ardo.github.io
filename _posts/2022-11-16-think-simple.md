@@ -10,7 +10,7 @@ A lot of fear.
 This confusion arises or just when intelligence and emotion are at play in misalignment or in excess.
 This confusion causes various forms of psychological suffering.
 
-Take a breath. Think simple.
+Breathe. Think simple.
 
 Think binary also.
 Things at some fundamental level might just be either black or white.
