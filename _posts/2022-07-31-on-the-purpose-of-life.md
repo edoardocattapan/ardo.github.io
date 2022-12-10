@@ -9,6 +9,7 @@ So, as it is lived, the purpose of life should be the purpose of the present mom
 
 To live in a state of *flow* is what is important from a perspective of an individual's psychological mechanics or conscious experience.
 **The purpose of the present moment is be to be in flow** - as defined by Mihaly Csikszentmihalyi.
+**It is to be most alive, most present, most like yourself.**
 
 For a moment - or a life - of flow to be meaningful, there needs to be the fulfillment towards a purpose that is greater than one's life: to help advance a good cause that is mutually believed in by the individual and his people.
 
@@ -145,7 +146,7 @@ What is most important to me?
 What can I do?
 
 For me, these questions lead to my answer:
-**To be a good person by exemplarily taking daily and historical acts of honesty, courage and kindness.**
+**To be a good person by fighting for the values of honesty, courage and kindness through taking the set of choices and actions that exemplarily save, grow and glorify them.**
 
 Now, why are you here in the world?
 What if you were never born?
