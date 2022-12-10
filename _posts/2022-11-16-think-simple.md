@@ -7,7 +7,7 @@ Intellectual and emotional complexities driven by running scenarios of more or l
 Meta-things distract from things.
 A lot of colors, shades, lights, juxtapositions, framings.
 A lot of fear.
-This confusion arises when too much intelligence and emotion are at play.
+This confusion arises or just when intelligence and emotion are at play in misalignment or in excess.
 This confusion causes various forms of psychological suffering.
 
 Take a breath. Think simple.
