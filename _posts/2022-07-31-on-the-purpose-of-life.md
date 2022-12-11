@@ -145,7 +145,7 @@ What change do I want to see in the world?
 What is most important to me?
 What can I do?
 
-For me, these questions lead to my answer:
+For me, if I can strive for something, these questions lead to my answer:
 **To be a good person by fighting for the values of honesty, courage and kindness through taking the set of choices and actions that exemplarily save, grow and glorify them.**
 
 Now, why are you here in the world?
