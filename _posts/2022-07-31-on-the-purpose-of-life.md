@@ -16,9 +16,9 @@ Society and history also must be in flow, creating more complexity through techn
 Believe in evolution.
 Consciously accept your role in the universal, slow and necessary process of evolution: whatever happens to your individual life, it becomes at one with the universal power.
 
-According to thermodynamics, low entropy is both the extreme past and future of the universe: at the beginning (big bang) and end (heat death) of the universe, energy is not useful and is spread out, temperature is even, heat is not transferred for work. Even if at the extremes of low and high entropy respectively, these states of the universe both have low-complexity.
+According to thermodynamics, low complexity is both the extreme past and future of the universe: at the very beginning (big bang) and end (heat death) of the universe, energy is spread out and, thanks to gravity, is on the verges of not being useless until temperature is even and heat is not transferred for any work. But high entropy does not mean high complexity. Even if at the extremes of low and high entropy respectively, these states of the universe both have low complexity.
 
-We find ourselves in the unlikely middle stages of high complexity between these two states.
+We find ourselves in the unlikely middle stages of high complexity between the two states.
 **We inevitably evolve to increase entropy and we have useful energy available to do complex interesting things until we no longer do.**
 Earth receives from the Sun useful energy, which Earth dissipates as less useful energy in many ways: some of it we use through **entropy-accelerating information systems like Life** (all life forms like plants and animals), some of it we waste as heat and radiation back to space.
 
