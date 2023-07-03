@@ -5,7 +5,25 @@ I have here previously tried to arrive at a conclusion: *"the purpose of life, t
 But perhaps trying to define one's own life purpose is like trying to find one's destiny: they are a-posteriori retrospective summatory perspectives on what one has been doing with the present moment all along.
 You can only connect the dots looking backwards, and you can only live in the present moment.
 
-So, as it is lived, the purpose of life should be the purpose of the present moment - to make the most out of it, to live in flow: with awareness, enjoyment, ordering the information that enters your consciousness with gratitude, discerning what is within and without your control, engaging in activities that match your challenges to your skills and balance them between anxiety and boredom in a way that is useful to the fulfillment of some clearly defined greater goal, serving the present moment by carrying yourself with virtue, developing yourself and adding value to others, doing what you love and loving what you do, being in a state of perfect knowledge of the reality of your situation, perfect efficaciousness and perfect economy of energy of thought, emotion and action (*wu wei*).
+Let's start by looking backwards.
+If there is any meaning to be found in the past, it is in the increase in the complexity of material structures and information over time.
+Evolution provides a meaningful direction to our efforts from the past towards the future.
+In order to have a positive future, we must find ways to enjoy actions that lead to greater harmony within ourselves and our environment, tending towards expansion and wholeness of identity.
+
+Our individual lives must conform to the evolution of complexity in the universe: enjoy every action, keep learning, improve skills, accept death to be fully committed to goals beyond yourself.
+Society and history also must be in flow, creating more complexity through technology, culture, religion, science.
+
+Believe in evolution.
+Consciously accept your role in the universal, slow and necessary process of evolution: whatever happens to your individual life, it becomes at one with the universal power.
+
+According to thermodynamics, low entropy is both the extreme past and future of the universe: at the beginning (big bang) and end (heat death) of the universe, energy is not useful and is spread out, temperature is even, heat is not transferred for work. Even if at the extremes of low and high entropy respectively, these states of the universe both have low-complexity.
+
+We find ourselves in the unlikely middle stages of high complexity between these two states.
+**We inevitably evolve to increase entropy and we have useful energy available to do complex interesting things until we no longer do.**
+Earth receives from the Sun useful energy, which Earth dissipates as less useful energy in many ways: some of it we use through **entropy-accelerating information systems like Life** (all life forms like plants and animals), some of it we waste as heat and radiation back to space.
+
+Now let's look at the present - if it is indeed true that it is the only gift.
+As it is lived, the purpose of life should be the purpose of the present moment - to make the most out of it, to live in flow: with awareness, enjoyment, ordering the information that enters your consciousness with gratitude, discerning what is within and without your control, engaging in activities that match your challenges to your skills and balance them between anxiety and boredom in a way that is useful to the fulfillment of some clearly defined greater goal, serving the present moment by carrying yourself with virtue, developing yourself and adding value to others, doing what you love and loving what you do, being in a state of perfect knowledge of the reality of your situation, perfect efficaciousness and perfect economy of energy of thought, emotion and action (*wu wei*).
 
 To live in a state of *flow* is what is important from a perspective of an individual's psychological mechanics or conscious experience.
 **The purpose of the present moment is be to be in flow** - as defined by Mihaly Csikszentmihalyi.
