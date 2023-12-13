@@ -121,7 +121,7 @@ Good causes to advance:
 - Climate change (influence policies)
 - Mental health (lower number of suicides)
 - Global health (access to drinkable water, lower hunger, lower poverty, increase education, pandemic prevention)
-- Longtermism (volunteer for Effective Altruism)
+- Longtermism
 - Space exploration (support SpaceX)
 - Pediatric research
 - Animal rights & welfare
