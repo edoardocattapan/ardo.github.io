@@ -4,11 +4,10 @@ title: About
 permalink: /about/
 ---
 
-This blog is a series of essays to account for an independent intellectual enquiry over some open territories of ideas, starting from personal insights about life and reality, through abstract reasoning.
+This blog is a series of short essays to account for an independent intellectual inquiry over some open territories of ideas, starting from personal insights about life and reality, through abstract reasoning.
 
-Here you are safe from tracking and free to read or copy the content: no cookies, no copyright.
-If you like reading these essays, I hope you can find some value here and make something good out of it.
-
+I apply no paywall, no copyright, no tracking in this website.
+If you like and find some value in these essays, please make something good out of it.
 
 
 “*A man may die, nations may rise and fall, but an idea lives on. Ideas have endurance without death.*” ― John F. Kennedy
